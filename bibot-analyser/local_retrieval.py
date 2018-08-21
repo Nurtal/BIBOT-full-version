@@ -1,1 +1,240 @@
-“Š’ëØä£ÒÒÑ¥ÕëèØØÑ€ˆÕãÔÒÑİŸ’éäÏ›€o|—“s†™…¯²»Èê×ÛÙæÎƒßÓØãâÖÄêÎáâÏÕåÒ’àßÌÄâ…âØÖ‰ÉßÑ×~“Œm™ˆ’¡®‰¦åÓèÙâİƒæÉØ”äØƒêÊêèzŒ†€ˆ•”§ƒÆÆäçÕ‰ÌäËáæİÊ×ßÔà”ÔÒÕÛÈæàé‰ÉèÔß”äÎÛêo•—zŒ†–¹Á¸¿£m™ˆ’”§ƒ¸××ÕÛ‰×ŞÊ’ØÕÙÈäÉ×âÓÎƒêÔ’èØÎƒæÉØ”ÓØÑìÊäèÕÛƒâÎÔæÑÛÜ€ˆ•~zsm€É×ÚÌÒäÛ×æäÈÓÚËÑèßÈ×ÛİæœàÍÉÕËÛàÕ’€…’”‹…˜o’”‰¨îÙäÕÓİƒêÊêèÏÕåÒ’ÕÙÇÜ…ØİÜÎƒ×ÓÖ”ãÊÙÛ…Ûèz‰ƒ–…ÛâÊƒêÊêèÏÌâÊ ~z‰ƒ–…ççÕ‰×ÛİææÑÌ×–ÒáØåÕÈ¢…Ó”ÜØ×–ÔØ”ÔÎÓÛÓÖÙŞÌÌÛØ’ÕâÎm–…’”ŞÎÈÚÊÖ”äØƒßÓåèÑÕÏ–ÙÚİã‰ÖêÚØÚsƒ–…’–’‹m€…’”Œ†–ÎßäßÛ××ÙÛãŞsƒ–…’İİÙÒèÙ’èÕá×èÆÕèzsƒ–…’—“‰Ó××ÓáÕİÈèØ|”‰ƒåÚæäåİÂÜÎŞÙÏ×ÄãÊ’±ÙÇÜÄØİÜÎ‘éÕŞİä‘…¤‡›~‰ƒ–ÔçèàŞ×ÕËÛàÕÈÑ×Ò×”­‰ÒëÙâéäÈÉßÑ×ÓŞÊĞÛÀ¢Ñ›‹‘êİæ–zsƒ–…’—“‰ÆåÓèÙâÜÌåÓ|”‰ƒê×ë®z‰ƒ–…’”‰×Ûİæ”­‰×ÛİææÑÌ×¤ÕäãÓÎÖéâØÖÈÉßÑ×z‰ƒ–…’”‰×îÙÑÚÙÕÈ–¢’ãàÎÑÔçèàŞ×ÕËÛàÕÈÑ×Ò× ’à…Ÿo’”‰ƒ–…’èèİÂÜÎŞÙàÕßÙ×œäÎÛê“ÖÙÓØÇÛ™ÕãÌÌßŒ›ÙĞÑå××›™’m–…’”‰ƒ–ÙêèÏÏÌâÊ ×ÜØÖÛ›~‰ƒ–…’”ÙÕßÓæ”’ÄÓ…”ŸãİÕÕÖÚÏÏÌâÊ›”›‹ƒÙÔàêÕÛ×ÛÉ”~‰ƒ–Êê×ÕÙ×°o’”‰ƒ–…’äâÒÑê…”Ï‘Æƒ¹Æà›ä‰ÕÛÆÖ”’”Öê×šäÔÏÂÜÎŞÙ™sm€oÖÙÖ‰ÊÛÙÑâåÖÅÛ×ÑãÖÈÓ×ÙÛÙŞİÖÕËäãİÈÄèÙÛ×ÜÎ‹××æİÓÕÈÕËÛàÕ’€…’”‹…˜o’”‰ ´…¹Ùä‰ÑëÒÔÙâ‰ÒÜ…âÕäÒÈäÙå”ÔÎÖÙ×ÛÖÕ‰Ìä…ÓæäÌÌâÊ ~‰ƒ–…’”ÌÄä…ÔÙİÕßÈİíœ‰ØéÊ’æÕÜØâÙå”çÒ×Ş…ÕÕåİÌåÓ ~z‰ƒ–…»Â¹µÅ¬Ä¹Ã¼m€…’”‹…˜o|”‰ƒ™ˆ’İİÙÒèÙÓèÙØÑ€…’”ÒĞæÔäè×ÏêĞ|”‰ƒßÒâãâİƒèÊ|”‰ƒßÒâãâİƒåÕ×æÑİÒèo|”‰ƒ™ˆ’äÑÛÄãÊæÙâÜm–…’”ŞŞĞØÊäÓßÏÂæÆæİÕ××é…¯”’·¤˜o’”‰ÆåÚàèÏİÒÕÒÓèÓÑƒ³…íñzsƒ–…’ÚåÕÏÕÙ×ìä‰ –‡”~‰ƒ–×××ßÛÇßÓÙ”­‰·èÚ×~‰ƒ–ÕÓçãÈ×ŞÊÑæÕÏÈèÊà×Õ‰ –«ÓàãÎm–…’”äÎÛêÄÖÕäÊƒ³…áäÕ×‹××æİÓÕÈÕËÛàÕ•ƒ˜×”z‰ƒ–…Øãâ‰ÏßÓ×”Ù×ƒêÊêèÏÍÄêÆ¬~‰ƒ–…’”ÕÌäÊ’±ÕÌäÊ æãİÕßÕšz‰ƒ–…’”‰ÏßÓ×”­‰ÏßÓ×¢ÔÎÆåÉ×œ—Ş×Ü™zsƒ–…’”‰ƒ™ˆ’ÈââƒêÔ’ÙèÕØÚÊ’ºÙĞƒâÊÙÙŞÍm–…’”‰ƒ–ËÛÛÏÖÄêÈÚ”­‰ÕÛ“åÙÑÛÆŞ”Ò¶ÒÊÒ“’ĞÔ‹–ÑÛâÕ’m–…’”‰ƒ–ÎØœÖÒÊÕÒÓèÓÑŒ°o’”‰ƒ–…’”‰ƒèÊÕãâÍÌäÌ’±¯ÄâØ×~‰ƒ–…’”ÎÏéÊ¬~‰ƒ–…’”‰ƒ–…äÙÓØÕÚÎàÛ¦ƒÊ×çÙzsƒ–…’”‰ƒßËšàÙ×È–†¯”’‹ƒ×ÓÖ”âÎÆå×ÖİŞĞƒ×ÓÖ”ŞØ×–ÕÓçãÈ×ŞÊÑæÕÏÈèÊà×Õ’€…’”‰ƒ–…’”‰ÉëÑŞÓäÎÛê…±ÕÌäÊ’Ÿ’‰…€o’”‰ƒ–…’—“‰·èŞ’èß‰Æ×ÙÕÜİËÛ…´İÒ‰ÕÛË×æÕ×ÆÛ…âÕâİƒ×ÓÖ~‰ƒ–…’”Œ†–ÓáèÒÑÙÑçØÕ‰Ìê…ÛâÏØâÑ’èÕá×€…’”‰ƒ–…ÛÚ˜ÛÈ¤Ø×ÕâÌËŒĞÆµ¯¨ÈªÀ·µ¼ßÑ·äÑÕÏÈèÊà×ÕÜŠ¢…ŞİŞÎŒŸŸ|”‰ƒ–…’”‰ƒ–×××ßÛÇßÓÙ”­‰©×ÑåÙz‰ƒ–…’”‰ƒ–…’äÑÜÖÕÙÚÙÏÛÈÜÊäÙŞÌÈ–¢’ÈâŞÈ€…’”İÈîÙÑØÑİÄ¤ÈŞããÎ‹Ÿo|”‰ƒ™ˆ’äÜÊÜ–ÜÛèØ‰ÑâÙİ~‰ƒ–ËçàÜÈ×Ûİæ”­‰ÉëÑŞÓäÎÛêÀ¬¡¡Æm–…’”äØÎÛÓå”­‰ÑâÙİ¢çØÕÚÄæãÛÎÑßß×œÖŞÏâÄæÙèİŒ€…’”ĞÏåÇÓàÏİÈîÙ’±×ÏêĞ ÈÕá×ÙáßÕ×ÖŸo’”‰†İÑáÖÑÕÂêÊêèÌÒäÈáæÔÊÑÙÊš›©›”‘’àÙ×Èé¢©©œ‰ÚßÉæÜ­š˜¦|~z‰ƒ–…•—–£’Ÿ¡–£’Ÿ¡–£’Ÿ¡–†™o’”‰†™…µµÃ®ƒÈªÂÃÂ½ƒºªÆ¹³½¬Å³’—“sƒ–…’—“–£’Ÿ¡–£’Ÿ¡–£’Ÿ¡–™ˆ|”‰ƒ™ˆ’İÎƒÚÊÓààÌêÍ’ãŞÎƒæÆæİÕ××€…’”ÌÄéÊÑæÕÙÒèÙÑáÑİÆŞ…¯”¶ÊÏéÊ|”‰ƒÙÆåÙÏÛÈæÔäèÏÖÄêÈÚÓ¡‰ –××¢ãÎÄèÈÚœ—Äº¢ÜÏï¡æÈ–äÙàØÕêáâæÕÜÈäÙ›ï¡æƒÆîèØÎŒñ–ï”ÓÊÖÛŒ”ÖŞÏâÄæÙèİŒ€o’”‰†™…ÕÕâÛÈÜÚŞ”çÒ×Ş…æÜÙÜƒéÙçÚÖsƒ–…’—“‰Ë×Û×”äØƒÙÔàèâØÏ–ÙÚÙÜ×ëËØ ÒÉ–Ôààé‰×ŞÎå”ÓÊÖÛ…Ûç½ÕëÊ|”‰ƒ™ˆ’èØÎÑ–ÆåçåÖÈ–Ü×›æÎƒİÔæ”ß×Ïï…áâÕ‰Ó×ÙÛÙŞİƒØÚæ”ßİËÛ×éİãÎƒİÎèÙÙÕßÔäİäâm–…’”“ŒƒêÔ’áßÛÈ–×áÖåÜ×–ÕÓèäÎÕä“|”‰ƒÙÆåÙÏÛÈæÔäèÏÖÄêÈÚÓ¢‰ –××¢ãÎÄèÈÚœ—Ä¤¢ÆÏï¡æƒÑ•Ÿ­Íä”¢—ï¡éÎÄèÀåÑë™§âŸãÜÍƒÁéŸ™–ËçàÜÈ×Ûİæzsƒ–…’×ÑÜÈÕ××äßÛ×ÕÒÓèÓÑÂâÎåè¦ƒÑÈÓçÕÈÕÛÕáæäÈĞ×ÙÕÜÏš–ÈÓçÕÈÕÛÕáæäÈĞ×ÙÕÜÏ›À€…’”ÏÒè…ßÕäÌË–Îà”ÓÊÖÛÄäÙàØÕêÄßÕäÌËÕÑÛçä£m–…’”‰ƒ–ÎØœİÊ×ÙÍ›®z‰ƒ–…’”‰ƒ–…’âåÖÅÛ×ÑãÖÈÓ×ÙÛÙŞİÖ–¢’¥z‰ƒ–…’”‰ƒ–…’×ÑÜÈÕ××äßÛ×ÕÒÓèÓÑƒ³…ÆæåÎm€…’”Œ†–©×èÕÌ×–«ÓàãÎƒÙÆåÙÖÄêÈÚ”˜Ò‘Û…ßéÜİÌæÑ×”ÓÊÖÛ…ÛâİËÛ…åÕİÎƒæÆâÙâ’m–…’”ÖÊÏéÊÑ×ÑÜÈÕÒÓèÓÑƒ³…äÙÏÌäÉÓàÜ‘ŠÀÂ àÆÄêÎ×âäå¾¹‘ÕÑÑÜÈŸ…Í¤¢Àñ–ï”Ëª×Âí¥í‰¾¦’«Ñëš¨âŸíÕÊÕÑØÏï •”ó’áàÔ‰‹ÒÜ—•ƒÜÚŞàÏİÈîÙ›~‰ƒ–ÎØœÖÊÏéÊÑ×ÑÜÈÕÒÓèÓÑŒ°o’”‰ƒ–…’×ßŞÑê…¯” sƒ–…’”‰ƒÜÔä”İÊ×ÙÍ’İŞ‰É×ÑåÙÏÌÄéÊÑáÑİÆŞŸ|”‰ƒ–…’”‰ƒ–ÈáéŞİƒ¡¢’¥z‰ƒ–…’”‰ÌÜÕãå××–ÓáèÒÑ–ÈáéŞİÂêÔÑáÑİÆŞ“İÙéÜ‹Ÿ¬~‰ƒ–…’”‰ƒ–…Õãå××ÕÙáÓİÊ×ÙÍÍ×ßŞÑêÂ’±šm–…’”‰ƒ–ÊŞçÕ£m–…’”‰ƒ–…’”ÌÒëÓæÓäØÂãÆæ×ØÄÆåÚàèÍ‰³…£~z‰ƒ–…’”‰Æ×Ø×ÓâÎÓå×æÓİÊ×ÙÍ’±¯ÄâØ×~zsm–…’”“Œ£’Ÿ¡–£’Ÿ¡–£’Ÿ¡–£’Ÿ¡–†™o’”‰†™…¿É¼½¬Æ±·”Àª·¿ªÀÈ­¨ÊªµÈ¹¸±–ˆ•~‰ƒ–ˆ•¡–£’Ÿ¡–£’Ÿ¡–£’Ÿ¡–£’Ÿ—“sƒ–…’—“‰¥ÛÆæ”ÓÊÖÛ…äÙàØÕê‘’İÖ‰ÚÛ…ææÙĞÊÛ×’èØÎƒêÜá~‰ƒ–ˆ•”ÔÎ×ÛÈæİß×–ÕäÙÖÎÕ–ÙÚÙÕÄèÌ×çä‰ÑëÒÔÙâ‰ÒÜ…âÕäÒÈäÙ|”‰ƒ™ˆ’œİØÕÛ…ÕÜÑ×ÆÛ…æãÌÄêÈÚ”Òâƒ×ÈÕİÔÎÑê…ÖÙäÊÌâ…áâØÑÛ…âÕäÒÈäÙ’ÕİØÑİo’”‰†™…Ó”ÜÊÕİÊ’çäŞÇï…æÜÑ×ƒãÎåçÌÄêÈÚ”ÜÊÕİÊ’âåÖÅÛ×’ãÖ‰Ó×ÙÛÙŞİƒßÓ’ÕÌÄéÊ’æÕÙÒèÙ›~zsƒ–…’áåÕ×ßÕŞÙÏÙÄêÎ×âäÈĞ×ÙÕÜÏšƒ³…äÙÜÈ××ÕÜ˜‹Ñ•Ÿ­Íä”¢™ïÄ³¢ÕÏÕäÒÈäÙå›œ‰ÉëÑŞÓäÎÛê|”‰ƒßËšáåÕ×ßÕŞÙÏÙÄêÎ×âäÈĞ×ÙÕÜÏšŒ°o’”‰ƒ–…’ÚßÛƒãÆæ×Ø‰Ìä…äÙÏÌäÉÓàÜ‘ŠÀ¢¡©ÆŞ§‘¦ñ™‰¾Æ‘âÑÑİÌÛÓæç—•ƒÜÚŞàÏİÈîÙ›®z‰ƒ–…’”‰ƒ–…’İÖ‘Ğ×ÙÕÜ×Òê…ÛâÌÒëÓæÓäØÂãÆæ×Ø—ÎÛŞåœ™’€…’”‰ƒ–…’”‰ƒ–…’×ßŞÑêÄæãÏÖÄêÈÚÏİÊ×ÙÍÏ”­‰”€…’”‰ƒ–…’”‰ÈâØ×®z‰ƒ–…’”‰ƒ–…’”‰ƒÙÔçâäÈ×åÄßÕäÌËÑÒÓèÓÑÀ–¯”¡sm–…’”İŞÏêÎâàÕÈÓ×ÙÛÙŞİÂãÆæ×ØÈ––¢’æÕ—ÉßÓÖÕÜÕ‹…šÏ –œÓà£ ¤æŒ–ÁéŸ‘¾Æ‘âÑÑİÌÛÓæçìÄ¦¢ÈÏÕãÎÖŸŒ”ÖŞÏâÄæÙèİŒ€…’”ÒÉÒçàäÒÓâÊÑäÑİÌÛÓæÓİÊ×ÙÍÑ§™£m–…’”‰ƒ–ËáæÖÄêÈÚ”Ù×ƒãÚŞèÙÙÏÛÄâÕäÒÈäÙÑáÑİÆŞÄ¥®z‰ƒ–…’”‰ƒ–…’İÖ‘Ğ×ÙÕÜË™À–ÓáèÒÑ–ÈáéŞİÂêÔÑáÑİÆŞ“İÙéÜ‹Ÿ¬~‰ƒ–…’”‰ƒ–…’”‰ÆåÚàèÏİÒÕÒÓèÓÑ¾ãÆæ×ØÄ“ÓÂ’±šm–…’”‰ƒ–…’”ÎÏéÊ¬~‰ƒ–…’”‰ƒ–…’”‰ÆåÚàèÏİÒÕÒÓèÓÑ¾ãÆæ×ØÄ“ÓÂ’Ÿ­‰”€o’”‰†™…ææé‰×å…ÕÕäÌË–ÛÓàåÎÖ–Ëäãİ‰ÒêÍ×æÜ×ëÉÛÙãsƒ–…’—“‰·Å©Á”ª‰Úå×İ”ß×ƒêÍ×”Â®ª»½”ÓÊÓêÚäÙÖÒèÊ’èØÊÑ–ÔàÙàÒèÉ’ÖÕİÚÛÊà”äÑÈ€…’”Œ†–ÇÛÖÛÈÜÊäÙŞÌÈ–ÆàØİËÛ…àéİËÈè…áÚÙÄêÎ×âäÜm–…’”ÖÊÏéÊÑáåÕ×ßÕŞÙÏÖÄêÈÚ”­‰ÕÛ“åÙÑÛÆŞ™ÏÂ•ÕÓÊÕÙŞİƒØæéÔâßéÙçØÙÎÖŸ…ÎÏä”¢˜ïĞÍ‰¿í’œË™¯Âí¥œàŸ…šÏÀ•ÓÓÆæİÕ××éáÍ·œÌÀ×Ø×ç™–ËçàÜÈ×Ûİæz‰ƒ–…ÛÚ˜ÏÄâØ×ÓİŞÏêÎâàÕÈĞ×ÙÕÜ™£m–…’”‰ƒ–ËáæÖÄêÈÚ”Ù×ƒèÊ ÚÙ×Ç×ÑŞœ—Äµ¢×ÏÙÓÎÑê…šçäŞÇïáåèåÍÌÛØ›”ÌÄ‘ñ–§íÅÀ–ÁéŸ‘¾¦’«Ñëšªâ›”˜Ä³¢ÕÏÕäÒÈäÙåğË¬ÙÂÓçÕÜŒ‘’ÚåÕÏÕÙ×ìä’€…’”‰ƒ–…’”‰ÌÜßÕäÌËÑ–Ï”Ù×ƒÙÔçâäÈ×åÄßÕäÌË¤Ğ×íã‘Œ–ÆàØÌÒëÓæÓäØÂãÆæ×ØÄĞ×ÙÕÜËšÀÓ…°” ’€…’”‰ƒ–…’”‰ƒ–…’×ßŞÑêÄæãÏÖÄêÈÚÏİÊ×ÙÍÍ¥ÍÆƒ£¢’¥zsƒ–…’ÚÑÕÖÛÄßéÜİÌæÑ×ÓİÊ×ÙÍÑ¦¦ƒèÊ ÚÙ×Ç×ÑŞœ—ÊÑÚ…šÏ –œÓà£ ¤æŒ–š³ªÄ¤£¿Ó¡êÆÒØ›ï •àÑ¦ŸÎÑ–İÓ››œ‰ÉëÑŞÓäÎÛê|”‰ƒßËšÚÑÕÖÛÄßéÜİÌæÑ×ÓİÊ×ÙÍÑ¦™£m–…’”‰ƒ–ËáæÖÄêÈÚ”Ù×ƒÜÆŞçÕÈĞëÑæİàÕÈÕÒÓèÓÑÂ¨Ÿ|”‰ƒ–…’”‰ƒ–ÎØœâÎ‘éÊÓæÓÑ‹ÀÂ àÆÄêÎ×âäÜßÑ¨×ÍÊÖÛØ™ ÖÄêÈÚÏ¡ÆŒŸŸ|”‰ƒ–…’”‰ƒ–…’”ÒÉÒÓèÓÑ¾¦Â’İŞ‰ÆåÚàèÏİÒÕÒÓèÓÑ‘áÊëç˜’ƒ×ÓÖ”ÓØØäÙÑèßÈĞ×ÙÕÜËÖÄêÈÚÏ ÆÀ–£’¤™£m–…’”‰ƒ–…’”‰ƒ–…’”‰ÆåÚàèÏİÒÕÒÓèÓÑ¾ãÆæ×ØÄ“ÓÂ’¡­‰”€o’”‰É×ÑåÙÏÖØâÙÛäÜÎÂãÆæ×ØÈ•–¢’æÕ—ÖÛÆä×Ø‘ŠÑ·æÍÎÆÛÓæ”˜¨Ñ¦ŸÎÑ–İÓÎç™ä“¢âÍµÃÄ£ßÏŸ‘ÖêÚÖíìÜ×ëÉÛÙã’ƒ¤¬Ï±–½×’ìÑ›ÅÖŸà¢ íÄ¤£¿Ó¡êÆ–Í¤¢Àñ–¨í’ƒÁéŸ™ä“¢â’œË¹æÂÓèÙÎÑêØîÏ³•ÆÓÆåÙã’Š¢…ØéÜÕÂêÊêè™sƒ–…’İÖ‘É×ÑåÙÏÖØâÙÛäÜÎÂãÆæ×ØÈ•ŸŸ|”‰ƒ–…’”ÖØÕ–ÒÓèÓÑƒßÓ’æÕ—ÉßÓÖÕÜÕ‹ÀÄ âÆÈÙÊàè‘¢°À³¡ÊÊğÂĞã’Ş¦‘ïÏ±–½×’ìÑ›‰‹éÙçØéåÖêÚÖİÕÜŒ–±®ËªĞÆŸîÍ”¿éí¤œæ¾·’ÌÕãÀ¡…šÏ –œÓà£ ¤æŒ–Îë›’Ş¦‘ï”˜Ä³¢ÕÏÕäÒÈäÙåğË¬ÙÂÓçÕÜŒ‘’ÚåÕÏÕÙ×ìä’€…’”‰ƒ–…’”‰ÌÜßÕäÌËÑ–Ï”Ù×ƒÙÔçâäÈ×åÄßÕäÌË¤Ğ×íã‘Œ–ÆàØÌÒëÓæÓäØÂãÆæ×ØÄĞ×ÙÕÜËšÀÓ…°” ’€…’”‰ƒ–…’”‰ƒ–…’×ßŞÑêÄæãÏÖÄêÈÚÏİÊ×ÙÍÍ¥ÍÆƒ£¢’¥zsƒ–…’ÚÑÕÖÛÄßéÜİÌæÑ×ÓİÊ×ÙÍÑ¦¦ƒèÊ ÚÙ×Ç×ÑŞœ—‘‹µŸÍµÃÄ£ßÏŸÌÜŒñ•ñËªĞÆŸîÍ”Œ–Í¤¢Àñ–¨í’ƒ±®ËªĞÆŸîÍ”¿éí¤œæ¾·’ÌÕãÀ¡™ ÏØâÑÑèÕá×Ÿo’”‰ÌÜØÕÜÜÈÕÒçàäÒÓâÊÑáÑİÆŞÄ¤ªsƒ–…’”‰ƒÜÔä”İÊ×ÙÍ’İŞ‰É×ÑåÙÏÖØâÙÛäÜÎÂãÆæ×ØÈ•°o’”‰ƒ–…’”‰ƒÙÍ××ÛÈ”–¢’ºÑÕÖÛo’”‰ƒ–…’”‰ƒÙÍ××ÛÈ•–¢’ºÑÕÖÛo’”‰ƒ–…’”‰ƒÜÎäçäÈÓ××æ”­‰Ğ×ÙÕÜË™À€…’”‰ƒ–…’”‰ÆåÚàè¦ƒãÆæ×ØÄ”Óo’”‰ƒ–…’”‰ƒéÊÕãŞÍÂæÆäè¦ƒãÆæ×ØÄ•Óo|”‰ƒ–…’”‰ƒ–ˆ•”²ÎÉå××”ÓÊ×ÙÍ×Ø×ØãÇ×æz‰ƒ–…’”‰ƒ–…’İÖ‘ÕÛ“åÙÑÛÆŞ™çäŞÇïáåèåÍÌÛØîæÕÙÒèÙîæÕÙÒèÙå›œ‰Éß×åèÏÙÄèÙ›ªsƒ–…’”‰ƒ–…’”‰ƒ–ÎØœâÎ‘éÊÓæÓÑ‹ÀÄ âÆÈÙÊàèš–ËÛæãİÂæÆäè™’€…’”‰ƒ–…’”‰ƒ–…’”‰ƒÙÍ××ÛÈ”–¢’ÈâŞÈ€…’”‰ƒ–…’”‰ƒ–…’ÙÜÒÉ××¢ãÎÄèÈÚœ—Äµ¢×ÏÙàØÕêÊÖ›œ‰Éß×åèÏÙÄèÙ›ªsƒ–…’”‰ƒ–…’”‰ƒ–…’”ÌËÛÈİÓ¡‰ –¹äéÕsm–…’”‰ƒ–…’”Œ†–¦ØèÕÛƒÙÆæ×ØÎÇ–ÓçáÒÎÕ€…’”‰ƒ–…’”‰ÌÜäÙÜÈ××ÕÜ˜¾Æ‘âÑÑİÌÛÓæçìÄ¦¢ÈÏÕãÎÖ‘’çÕÌÒäÉÑäÑÛ×Ÿ¬~‰ƒ–…’”‰ƒ–…’”‰ÆŞÊÕßÏ›ƒ³…ÆæåÎm€…’”‰ƒ–…’”‰ÌÜÕÜÕÌÎÕ–’ÕŞÍƒÙÍ××ÛÈ•ŸŸ|”‰ƒ–…’”‰ƒ–…’”ÒÉÈáéŞİƒßÓ’×ßŞÑêÄæãÏÖÄêÈÚ¢ÛÎÜé›”Ñ×Ç–ÈáéŞİÂêÔÑáÑİÆŞÀÕãå××Ó…°” ’€…’”‰ƒ–…’”‰ƒ–…’”‰ƒÙÔçâäÈ×åÄßÕäÌËÑÈáéŞİÀ–’¯”¡sm–…’”“ŒƒºÊÓààÌêÍ’ÖÙËƒèÊØ”Ù×ÖÛ×æÙÔ‰Ìä…æÙèİm–…’”ÖÊÏéÊÑáåÕ×ßÕŞÙÏÖÄêÈÚÓ¢‰ –××¢ÖÒÑÚÆŞà˜¾È‘äÑÕÙÒèÙ×ØËÜ–±®ËªĞÆŸîÍ”¿éí¤œæ¾·’ÌÕãÀ¡…š³ªÎ××Ñ ë™ó…ÎÏË™¯Âí¥œæ¿Ó…š³ªÄ¤£¿Ó¡êÆÒØ›ï •àÑ¦ŸÎÑ–İÓ’œË™¯Âí¥œàŸ…šœ¯£¾·’ÌÕãÀ¡Áåë™óÀ³¡ÊÊğÂ—•ƒÜÚŞàÏİÈîÙ›~‰ƒ–ËáæÖÄêÈÚ”Ù×ƒÜÆŞçÕÈĞëÑæİàÕÈÕÒÓèÓÑÂ¨Ÿ|”‰ƒ–…’”ÓØØäÙ’±ÖÄêÈÚÏ Æm–…’”‰ƒ–ÑÓçäÈÓ××æ”­‰Ğ×ÙÕÜËšÀ€…’”‰ƒ–…ÛÚ˜ÛÈ¤Ø×ÕâÌËŒÍÄœÙÀ×ÙÛÙŞİÖòÀµ ÓÆÄéÊå›œ‰Ï×ØæÓàÊÕê›®z‰ƒ–…’”‰ƒ–…’İÖ‘ÆåÚàèÒÑ–ÈáéŞİÂêÔÑáÑİÆŞ“İÙéÜ‹Ÿ…ÓâÔ‰ÆåÚàèÏİÒÕÒÓèÓÑ¾ÙÔçâäÆƒ´…¢ªsƒ–…’”‰ƒ–…’”‰ƒ–ÈáéŞİÂêÔÑáÑİÆŞÀÕãå××Ó…Ÿ±šm€…’”ÏÄâØ×ÓİŞÏêÎâàÕÈĞ×ÙÕÜÏ›ƒ³…äÙÏÌäÉÓàÜ‘Š±®ËªĞÆŸîÍ”¿éí¤œæ¾·’ÌÕãÀ¡’œË™¯Âí¥œàŸ…šœ¯£¾·’ÌÕã“£ÏŸÌÜŒñ•ñËªĞÆŸî –œÓ›”˜Å¾Ñ•Ÿ­Íä”¢â››œ‰ÉëÑŞÓäÎÛê|”‰ƒÜÔä”İÊ×ÙÍ’İŞ‰É×ÑåÙÏÖØâÙÛäÜÎÂãÆæ×ØÈ•°o’”‰ƒ–…’×ßŞÑê…¯”İÊ×ÙÍÍ¥Ísƒ–…’”‰ƒßËšæÕ—ÖÛÆä×Ø‘ŠÑµäÍÊ×ßÊàèãå¾¹‘ÕÑÑÜÈéŒ”İÊ×ÙÍÍ¦Í’Œ°o’”‰ƒ–…’”‰ƒßËš×ßŞÑê…ÛâÌÒëÓæÓäØÂãÆæ×Ø—ÎÛŞåœ™‰ÄäÉ’×ßŞÑêÄæãÏÖÄêÈÚÏÓØØäÙÏ”®‰“ŸŸ|”‰ƒ–…’”‰ƒ–…’”ÌÒëÓæÓäØÂãÆæ×ØÄÆåÚàèÍ‰³…£~z‰ƒ–…ÛÚ˜ÕÈäÕãå××ÕÙáÓİÊ×ÙÍ›”®‰“–ÆàØ×Òê…ÕÕãÎÂèÊâãâİÂãÆæ×Ø’€…’”‰ƒ–…Õãå××ÕÙáÓİÊ×ÙÍÑçßÛ×ÛÉ’±ÜÒèÙ×Ø˜ÌÒëÓæÓäØÂãÆæ×Ø—ÌêÊßç˜’–Ğ×í­ØÓÛ×ÓèßÛ‘ßÙ×á×Î×êÊäœ¡’Œ€…’”‰ƒ–…ÛÚ˜ÒÑêÕãå××ÕÙáÓİÊ×ÙÍÑçßÛ×ÛÉÍ¡¡Æ¾¦Â›”®‰“–ÆàØÌÒëÓæÓäØÂãÆæ×ØÈÖå×æÙÔÄ§ÂÍ¥Í‰¡–•›®z‰ƒ–…’”‰ƒ–…’âåÖÅÛ×ÑãÖÈÓ×ÙÛÙŞİÖ–¢’İŞİ‹ÙÔçâäÈ×åÄßÕäÌËÕØáæäÎÇÑ’£ÑË™ÀŸo|”‰ƒ–…’”“ŒƒèÊæéâ×ƒÄ¦’İÖ‰ÄâÑ’×ÑİÆŞÊÖ”ãÎÑêÊà×ÕÜƒİÎèÙÍÌÜË×æÕ××–ÓçáÒÎÕéo’”‰ƒ–…’İÖ‘ÏÛÓš×ßŞÑêÄæãÏÖÄêÈÚ§ƒ§…ÓâÔ‰‹ßÓæœÓØØäÙÑèßÈĞ×ÙÕÜÏÜÒèÙ×ØË–”ÓÀ£Ñ™‰ ³…Ûâä‘ÆåÚàèÏİÒÕÒÓèÓÑÂéÔäèÕÍ¾¦ÂÍ¥Í’Œ–ÆàØ×Òê…ÕÕãÎÂèÊâãâİÂãÆæ×Ø’€…’”‰ƒ–…’”‰ÑëÒÔÙâÈÒÜÄâÕäÒÈäÙå”­‰…Ä¦”~z‰ƒ–…’”‰†™…äÙäŞÕä…ÀµÒÉ–ÙÚÙÌÄêÈÚÙÔ‰Ğ×ÙÕÜÌÒëÓæ”ÙÜƒäÔæ”äÑÈ–Øææß×ÊÛ×’ÖåİƒÛÓÕãŞİÈè…×ìÕÌÒ€…’”‰ƒ–…•—ßÄâÚ×çz‰ƒ–…’”‰ÌÜŞÙŞ‘ÆåÚàèÏİÒÕÒÓèÓÑŒ–£’¥ÊÑÚ…àãä‰Æ×Ø×ÓâÎÓå×æÓİÊ×ÙÍ›®z‰ƒ–…’”‰ƒ–…’çÑÖÈÕÒÓèÓÑÂìÆŞéÕÈÉåÚàØ¦ƒ¼ÆŞçÕsƒ–…’”‰ƒ–…’”ÓÖÓêÄßÕäÌË–¢’¤z‰ƒ–…’”‰ƒ–…’ÚßÛƒìÆŞéÕ‰Ìä…Õãå××ÕÙáÓİÊ×ÙÍ êÑÕØÛØšªsƒ–…’”‰ƒ–…’”‰ƒ–ÎØœÙ××ÛÓàåÎŒ–¢¯”Ù××ÈáéŞİÂêÔÑáÑİÆŞÄåãâİÈÚÀŸ¥ÍÄ”Ó›®z‰ƒ–…’”‰ƒ–…’”‰ƒ–…’”ÓÖÓêÄßÕäÌË–¯”¡sƒ–…’”‰ƒ–…’”ÙÏ‹ÙÒâèÏÖÄêÈÚ”®‰”ŸŸ|”‰ƒ–…’”‰ƒ–…’”ÜÄãÊÑáÑİÆŞÄèÕÜŞÈÕËáéŞÍƒ³…ÆæåÎm–…’”‰ƒ–…’”‰ƒ–…àéİËÈèÄáÚÏÙÄêÎ×âäÜƒ³…”Â±‹m€o’”‰ÕÛÙçæŞ‰ÑëÒÔÙâÈÒÜÄâÕäÒÈäÙå~
+#!/usr/bin/python
+#coding: utf8
+
+
+##
+## => Retrieve information from local pdf file
+##
+## -> Convert pdf to text
+##
+## -> Parse information directly from text
+##
+## TODO:
+##  -> Break the dependence to the pdf converter library
+##
+
+
+
+
+def convert_pdf_to_text(pdf_file):
+    """
+    Extract text from a pdf file and save it
+    in a text file.
+
+    use textract module, a lot of dependencies are
+    needed to install this stuff.
+    """
+
+    ## importation
+    import textract
+
+    ## parameters
+    output_file_name = pdf_file.split(".")
+    output_file_name = output_file_name[0]+".txt"
+
+    ## conversion
+    try:
+        text = textract.process(pdf_file)
+        txt_file = open(output_file_name,"w")
+        txt_file.write(text.decode('ascii','ignore'))
+        txt_file.close()
+        print "[*] "+str(pdf_file) +" converted"
+    except:
+        print "[!] Can't read "+str(pdf_file)
+
+
+
+def get_number_of_patients_from_article(article_file):
+    """
+    => Get number of patients describe in artcile.
+        can be tricky, use results with caution.
+
+    IN PROGRESS
+
+    """
+
+    ## importation
+    import nltk
+    import re
+    import operator
+
+    ## parameters
+    number_of_patients = "NA"
+    count_to_match = {}
+
+    full_text = ""
+    recording = True
+    pass_the_reference = False
+    text_data = open(article_file, "r")
+    for line in text_data:
+        line = line.rstrip()
+        line = line.decode('utf8')
+
+        ## Try to exlude Fig legend
+        fig_match = re.search("^Fig\. \d", line)
+        if(fig_match):
+            recording = False
+        else:
+            recording = True
+
+        if(line != "" and recording and not pass_the_reference):
+            full_text += line +" "
+
+        ## Try to catch the Bib reference part and
+        ## not include it in full text
+        if(re.search('^REFERENCES|[Rr]eferences', line)):
+            recording = False
+            pass_the_reference = True
+    text_data.close()
+
+    ## play with nltk
+    full_text = full_text[:-1]
+    tokens = nltk.word_tokenize(full_text)
+    global_text = nltk.Text(tokens)
+    #global_text.concordance('921', lines=75, width=150)
+
+
+    ##-----------------------##
+    ## CASE REPORT DETECTION ##
+    ##-----------------------##
+    ## i.e deal with one patient
+    case_report_match = False
+    case_report_match_1 = re.search('[W,w]{1}e (report|present){1} (a|the){1} case', full_text)
+
+    ## carreful with this stuff
+    ## have to control the stuff, if only this case is True
+    ## then assume we've got only one patient but otherwise give priority
+    ## to more robust pattern.
+    case_report_match_2 = re.search('[A,a]{1} [0-9]{1,2}-year[s]{0,1}-old (\w+)', full_text)
+
+    case_report_match_list = [case_report_match_1, case_report_match_2]
+    for match in case_report_match_list:
+        if(match):
+            number_of_patients = 1
+            case_report_match = True
+
+    ## Detect False case match (i.e multiple case in the same paper)
+    false_case_match = re.findall('([P,p]atient|[C,c]ase) [0-9]{1} [A,a]{1} [0-9]{1,2}-year[s]{0,1}-old (\w+)', full_text)
+    if(false_case_match):
+        count = 0
+        for match in false_case_match:
+            count += 1
+        if(count not in count_to_match.keys()):
+            count_to_match[count] = 1
+        else:
+            count_to_match[count] += 1
+
+        case_report_match = False
+
+
+
+    ##----------------------------##
+    ## MULTIPLE PATIENT DETECTION ##
+    ##----------------------------##
+    ## Beat case report, if we trigger the two
+    ## detection, prefer the largest number of patient
+    ## (more chance to catch by accident detail on one patient among
+    ## a large study than miss catch large number of patient in a case report)
+
+
+    multiple_patient_match_1 = re.search('([0-9]{1,4}) [P,p]atients', full_text)
+    if(multiple_patient_match_1):
+        for match in re.findall('([0-9]{1,4}) [P,p]atients', full_text):
+            if(match not in count_to_match.keys()):
+                count_to_match[match] = 1
+            else:
+                count_to_match[match] += 1
+
+    multiple_patient_match_3 = re.findall(' ([0-9]{1,4}) \w+ ([P,p]atients|[C,c]ases)', full_text)
+    if(multiple_patient_match_3):
+        for match in multiple_patient_match_3:
+            if(match[0] not in count_to_match.keys()):
+                count_to_match[match[0]] = 1
+            else:
+                count_to_match[match[0]] += 1
+
+    ## try to catch values from other studies
+    ## TODO : work on the REGEX, capture more than one word between the
+    ## bib reference and the number of patients
+    false_multiple_match = re.search('[R,r]ecent (study|studies) \[.{1,3}\] \w+ ([0-9]{1,4}) ([P,p]atients|[C,c]ases)', full_text)
+    if(false_multiple_match):
+        for match in re.findall('[R,r]ecent (study|studies) \[.{1,3}\] \w+ ([0-9]{1,4}) ([P,p]atients|[C,c]ases)', full_text):
+            if(match[1] in count_to_match.keys() and count_to_match[match[1]] > 0):
+                count_to_match[match[1]] -= 1
+
+    false_multiple_match_2 = re.findall('and ([0-9]{1,4}) ((?:[A-Za-z]+\s){0,}[A-Za-z]+)', full_text)
+    if(false_multiple_match_2):
+        for match in false_multiple_match_2:
+            if(re.search('[P,p]atients|[C,c]ases', match[1])):
+                if(match[0] in count_to_match.keys() and count_to_match[match[0]] > 0):
+                    count_to_match[match[0]] -= 1
+
+    false_multiple_match_2 = re.search('[R,r]ecent (?:[A-Za-z]+\s){0,}[A-Za-z]+ (study|studies) (?:[A-Za-z]+\s){0,}[A-Za-z]+ ([0-9]{1,4}) (\w+){0,} ([P,p]atients|[C,c]ases)', full_text)
+    if(false_multiple_match_2):
+        for match in re.findall('[R,r]ecent (?:[A-Za-z]+\s){0,}[A-Za-z]+ (study|studies) (?:[A-Za-z]+\s){0,}[A-Za-z]+ ([0-9]{1,4}) (\w+){0,} ([P,p]atients|[C,c]ases)', full_text):
+            if(match[1] in count_to_match.keys() and count_to_match[match[1]] > 0):
+                count_to_match[match[1]] -= 1
+
+    false_multiple_match_2 = re.findall('((?:[A-Za-z]+\s){0,}[A-Za-z]+) ([0-9]{1,4}) ((?:[A-Za-z]+\s){0,}[A-Za-z]+)', full_text)
+    if(false_multiple_match_2):
+        for match in false_multiple_match_2:
+            check_1 = False
+            check_2 = False
+            first_part = match[0]
+            count = match[1]
+            second_part = match[2]
+
+            ## Before catched number
+            if(re.search('study|studies|report|reports', first_part)):
+                if(re.search('[R,r]ecent*', first_part)):
+                    check_1 = True
+                elif(re.search('[R,r]eported', first_part)):
+                    check_1 = True
+
+            ## After catched number
+            if(re.search('[P,p]atients|[C,c]ases', second_part)):
+                check_2 = True
+
+            if(check_1 and check_2):
+                if(count in count_to_match.keys() and count_to_match[count] > 0):
+                    count_to_match[count] -= 1
+
+    ## Deal with bib ref inserted in text
+    false_multiple_match_2 = re.findall('[R,r]eported by (?:[A-Za-z]+\s){0,}[A-Za-z]+ (?:etal.){0,} \[[0-9]{1,}\] (?:[A-Za-z]+\s){0,}[A-Za-z]+ ([0-9]{1,4}) ((?:[A-Za-z]+\s){0,}[A-Za-z]+)', full_text)
+    for match in false_multiple_match_2:
+        count = match[0]
+        last_part = match[1]
+        if(re.search('[P,p]atients|[C,c]ases', last_part)):
+            if(count in count_to_match.keys() and count_to_match[count] > 0):
+                count_to_match[count] -= 1
+
+    false_multiple_match_2 = re.findall('((?:[A-Za-z]+\s){0,}[A-Za-z]+) ([0-9]{1,4}) ((?:[A-Za-z0-9]+\s){0,}[A-Za-z0-9]+) (\[[0-9]{1,})', full_text)
+    for match in false_multiple_match_2:
+        count = match[1]
+        if(re.search('[P,p]atients|[C,c]ases', match[2])):
+            if(count in count_to_match.keys() and count_to_match[count] > 0):
+                count_to_match[count] -= 1
+
+    if(len(count_to_match) > 0 and not case_report_match):
+        count_to_match_sorted = sorted(count_to_match.items(), key=operator.itemgetter(1))
+        if(int(count_to_match_sorted[-1][0]) > 0 and count_to_match_sorted[-1][1] > 0):
+            number_of_patients = int(count_to_match_sorted[-1][0])
+
+        ## return NA if all catched sentences give different numbers
+        if(len(count_to_match) > 1 and (int(count_to_match_sorted[-1][1]) == int(count_to_match_sorted[0][1])) and not case_report_match):
+            number_of_patients = "NA"
+
+        ## return NA if the catched match count is not the stronger but enconter execo
+        ## values
+        if(len(count_to_match) > 1 and not case_report_match):
+            same_match_value_found = False
+            cmpt_match = 0
+            for value in count_to_match.values():
+                if(int(value) == int(count_to_match_sorted[-1][1])):
+                    cmpt_match += 1
+            if(cmpt_match > 1):
+                same_match_value_found = True
+                number_of_patients = "NA"
+
+
+    return number_of_patients

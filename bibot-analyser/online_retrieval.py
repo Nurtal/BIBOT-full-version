@@ -1,1 +1,197 @@
-“Š’ëØä£ÒÒÑ¥ÕëèØØÑ€ˆÕãÔÒÑÝŸ’éäÏ›€o|—“s†™…¯²»Èê×ÛÙæÎƒßÓØãâÖÄêÎáâØÑâÎàÙzŒ†€ˆ•”§ƒËØ×”àÖÌÚ…æãÛÈê×ÛÙæÎƒßÓØãâÖÄêÎáâãs†™…ØæßÖƒêÍ×”àÞÅãÊÖ”ÔÊ××ÇÓçÕ‰×Þ×áé×ÑƒêÍ×”²ÒÒ¤ªàèâÎÝ–¦Â½zŒ†€ˆ•”§ƒÆÆäçÕ‰ËêÒÞ”àÊÊÛ…ØæßÖƒêÍ×”ÞÌÅß…æãÏÌäÉ’àÙ×Îé…æãzŒ†–ÊêèÕÛÑ×Ñ’æÕÜÒë×ÕÙãs†™o•—½²º´¬~“Œƒ–’°”²ÛÈ×Ð’èØÎƒÚÊâÙÞÍÈäÈ×”äØƒêÍ×”²ÒÒ¤ªàèâÎÝ–ÑÛÖzŒ†€o|ØÕÏƒÝÊæÓÝÎ××ÄÛâÖØÕãÆæÝß×‹æÒÛØ™£m–…’”’‹…€…’”–¡–µÓæãÎƒãÊæÕÍÄêÆ’ãÖ‰×ÞÊ’ÕâÝÌÙÑ×”äØƒÝÊæ”äÑÈ€…’”‰ƒ–…Ÿ”äÒ×âÊ|”‰ƒ–…’”‰ÍåÚäâÑÕm–…’”‰ƒ–’’ØÑÝÈ€…’”‰ƒ–…Ÿ”ÑÞ×ÞÔä”ÜÒÖêo’”‰ƒ–…’¡ÊÕêÎÕàÕ‰×ïÕ×~‰ƒ–…’”–ƒßÓåèÙÝØêÎáâz‰ƒ–…’”‰–¦ÔçäÛÄÙÙ|”‰ƒ–…’”‰¦åÚàèââƒàÔçæÞÊÏ€…’”‰ƒ–…Ÿ”¼ÊÑÝÚÓÛÕsƒ–…’”‰ƒ£…½ÙéàÒèÉå~z‰ƒ–…Ÿ²ÛÈêÚäâÊƒÚÎÕèÙØÑäÆäíàÌêÍ’áÕÝÄ–ÎàÚßÛÐ×ÙÛãÞsm–…’”§ƒÊ´¶Ãªsƒ–…’”‰ƒåÕæÝÝÒÖ×ÙÛãÞ‰ÒÜ…æÜÕ‰ÌäØæÝäÞ×ßÔà”Õá×èÆÕèÙØÑ€…’”‹…˜o|”‰ƒ™ˆ’ÝÝÙÒèÙÓèÙØÑ€…’”ÏÕåÒ’¶ÙØƒßÒâãâÝƒ»ÓææÕãm–…’”ÖÛÒã…´Ýß—¨äÙäÙê‰ÌãÕáæä‰ÈÜÊæ×Ø•ƒèÊÓØzsƒ–…’—“‰Ó××ÓáÕÝÈèØ|”‰ƒ»ÓææÕã‘ÛÒÓÝÜ‰ –ŒßéâÕÒÙÐ æÑÜÓØÊäíàÒ£ÝÒÓÝÜ—ÆåÒ™~‰ƒ–ÙÛèÜÎƒ³…”Â±‹m–…’”ÚØØèÓÓà¦ƒ˜³³–z‰ƒ–…ÖÕäÎƒ³…”Â±‹m–…’”ÑÞ×ÞÔäÓÜÒÖê…¯”’·¤˜o’”‰ÄèÙÛ×ÜÎÂêÞâÙ¦ƒ˜³³–z‰ƒ–…ÛâãÝÌêÚ×”­‰…Ä¦”~‰ƒ–ÑÓâ×ÞÄÝÊ’±‹±·‡|”‰ƒ×ÇåèâÊÆê…¯”’·¤˜o’”‰ÎÛÞéãâÍÖ–¢’–¾ª…€…’”ÓÒë×àÕÜÈÆåÚàèââƒ³…”Â±‹m–…’”ÝÎ××ÄÛâÖØÕãÆæÝß×ƒ³…íñzsƒ–…’—“–£’Ÿ¡–£’Ÿ¡“Œm–…’”“Œƒ·ÈÕÙãÜƒÚÆæÕŒ†™ˆ•—“Œ†™ˆ•—“Œ†™ˆ•—“Œ†™ˆ•—“Œ†™ˆ•—“Œ†™ˆ•—“Œ†™ˆ•—“Œ†™ˆ•—“Œ†™ˆ•~‰ƒ–ˆ•¡–£’Ÿ¡–£’•—zsƒ–…’—“‰³××åÙÁ°Â…äÙãÙÒäØ×”“–£’Ÿ¡–£’Ÿ¡–£’Ÿ¡–£’Ÿ¡–£’Ÿ¡–£’Ÿ¡–£’Ÿ¡–£ˆ|”‰ƒÞÆàØÜÎƒ³…×ÚÕÝÆÞÖÖ­ÓëÇßÙÔ–ÎÖ±àÖÌÚ‘’æÕÝÐåÉ×±—áÐâŒž”™sƒ–…’ìÝÕÂÚÆæÕ¦ƒèÊÓØ˜ÑÄäÉÞÙ™sƒ–…’ÕâÝÌÙÑ×ÓÔÊ××…¯”èÖÏÕÉÓèÑÄŠÆÚÔáÕÍ¤èÙÛ×ÜÎŠÓÀ¢ÑË°ÛÉÞÝÞÎ¦ßÙÓèÙØÑÂÍ–±Û×ßÈÞÙ’Æm–…’”àÞÅâÎÕÕäÒÒäÄÖÕäÊƒ³…êáÜÈÇ×ÙÓÏå³ëÇßÙÔªÕêÎÕàÕÀÑ•ÏÏå°ÛÉÞÝÞÎ¦ßÙÓèÙØÑÂ|~‰ƒ–ˆ•”·Î×–ÙÚÙÊÕêÎÕàÕ‰×ïÕ×”“–£’Ÿ¡–£’Ÿ¡–£’Ÿ¡–£’Ÿ¡–£’Ÿ¡–£’Ÿ¡–£’Ÿ¡–†€…’”ÝÕïŸ|”‰ƒ–…’”ÑÛ×ßÈÞÙÏÝÜæÊ’±ÊÕêÎÕàÕÈÇ×ÙÓÏ—¹ØØÑÛ×ÑÝÌåÓÆíàÎ¯ßØæ›ÍÄ“Óo’”‰ÈîÈ×ää£m–…’”‰ƒ–ÕÓçãsm–…’”“ŒƒÝÊæ”äÑÈ–ÆäèÙÌÏÛ…æÝäÕÈ–ˆŸ¡–£’Ÿ¡–£’Ÿ¡–£’Ÿ¡–£’Ÿ¡–£’Ÿ¡–£’Ÿ¡–£’•~‰ƒ–Ùäíªsƒ–…’”‰ƒêÎæàÕ‰ –ÆäèÙÌÏÛÄÖÕäÊ¾¦äèÙÌÏÛ¹ÛèÜÎŠÓo’”‰ÈîÈ×ää£m–…’”‰ƒ–ÕÓçãsm–…’”“ŒƒÝÊæ”äÑÈ–ÕçÖÜÒÆ×ÙÛãÞ‰Ï×ÓÙéÑÐÈ–ˆŸ¡–£’Ÿ¡–£’Ÿ¡–£’Ÿ¡–£’Ÿ¡–£’Ÿ¡–£’•~‰ƒ–Ùäíªsƒ–…’”‰ƒâÆàÛåÊÊÛ…¯”ÑÛ×ßÈÞÙÏÍÄêÆÍ›¼ÊÑÝÚÓÛÕÀ€…’”ÎÛÙÊâèªsƒ–…’”‰ƒæÆåçzsƒ–…’—“‰ÊÛÙ’èØÎƒàÔçæÞÊÏ–ÈáéÞÝÕï…•¡–£’Ÿ¡–£’Ÿ¡–£’Ÿ¡–£’Ÿ¡–£’Ÿ¡–£’Ÿ¡–£ˆ|”‰ƒê×ë®z‰ƒ–…’”‰ÍåÚäâÑÕÂÙÔçâäÛÜ–¢’äåËÏßÈÓèÙØÑÕÉÓèÑÄØ²×ØÜÒÑÛ¯áéâ×Äâ®àÚßÀÑÚ™·ßÞÑê×ë›Ísƒ–…’ÙèÌÈæÙ¬~‰ƒ–…’”ÙÄéØ|~‰ƒ–ˆ•”×Î×–ÙÚÙÕÌéÙ’ãÖ‰ÎÛÞéãâÍÖ–ˆŸ¡–£’Ÿ¡–£’Ÿ¡–£’Ÿ¡–£’Ÿ¡–£’Ÿ¡–£’Ÿ¡–†€…’”ÝÕïŸ|”‰ƒ–…’”ÛÎÜíÔäØã‰ –ÕçÖÜÒÆ×ÙÛãÞÈÇ×ÙÓÏå®ÛÞéãâÍ¯ßØæ›Ísƒ–…’”‰ƒßËšàÕ×‹áÊëëßÛÇéŽ’±­‰“ŸŸ|”‰ƒ–…’”‰ƒ–Ð×íçØÕÚØ’±‹±·‡|”‰ƒÛÝÕÙàÝ€…’”‰ƒ–…ÝÙéàÒèÉå”­‰…Ä¦”~‰ƒ–…’”ÙÄéØ|~‰ƒ–ˆ•”×Î×–ÙÚÙÊÅéÙäÕÓÝƒ™’Ÿ¡–£’Ÿ¡–£’Ÿ¡–£’Ÿ¡–£’Ÿ¡–£’Ÿ¡–£’Ÿ¡–£’Ÿ¡–†€…’”ÝÕïŸ|”‰ƒ–…’”ÑËÖê×Ó×ä‰ –ÆäèÙÌÏÛÄÖÕäÊ¾¦ÔçäÛÄÙÙ™ÑË¤ØØææÑÌ×ÊÊêè—Æ¾¦Â|”‰ƒÛÝÕÙàÝ€…’”‰ƒ–…âÕãÜm€…’”Œ†–Ì×èÝËÛ…ÖÕäÎƒ™’Ÿ¡–£’Ÿ¡–£’Ÿ¡–£’Ÿ¡–£’Ÿ¡–£’Ÿ¡–£’Ÿ¡–£’Ÿ¡–£’Ÿ—z‰ƒ–…ÛÚ˜ÕÈäÓæäÒÆâÊÑØÑÝÄÑŒ³æäÒÆâÊ¶ÕäÎŠÓŽ°” ’€…’”‰ƒ–…ÖÕäÎÂÚÆæÕ¦ƒ××æÝÓÕÈÕÉÓèÑÄŠ·×æÝÓÕÈºÆæÙ—Æ¾¦Â|”‰ƒ–…’”ÔÊ×Û…¯”ãÝÕžÉÓèÕÈÇ×ÙÓÏ—­ÄïŒÏ›‹’˜åèâ‘Ç×Ù×ÓÔÊ××À™Áß××ÞŒÏz‰ƒ–…’”‰Ç×Ù×”›¦ƒ˜””ŸãÝÕžÉÓèÕÈÇ×ÙÓÏ—ÂÈ××™Ñ™sƒ–…’ÙÜÜÈ°o’”‰ƒ–…’èââ€…’”‰ƒ–…’”‰Ç×Ù×ÓÔÊ××…¯”ÑÛ×ßÈÞÙÏÍÄêÆÍ›ºØØèÓÓà—Æ¾¯áéâ×Äâ®åçåÎŠÓÀ™ÄåË§×Ù×›Ísƒ–…’”‰ƒ–…’”ÔÊ×Û…¯”ãÝÕžÉÓèÕÈÇ×ÙÓÏ—ÂÈ××™Ñ™sƒ–…’”‰ƒÛÝÕÙàÝ€…’”‰ƒ–…’”‰Ó×Øå~z‰ƒ–…•—ÐÈê…æÜÕ‰ÌäØæÝäÞ×Û…•¡–£’Ÿ¡–£’Ÿ¡–£’Ÿ¡–£’Ÿ¡–£’Ÿ¡–£’Ÿ¡–£’Ÿ¡–™o’”‰×èÞ¬~‰ƒ–…’”ÒÑéÙÛèåÎƒ³…’ÕâÝÌÙÑ×ÓÔÊ××À™µåÝËå×¾ÝãÝŠÓÀ¢ÑË¤ÜËÛàÙÊ×ßÔà½ÞÏÒÂ|”‰ƒ–…’”Ù×ÖêÎæéÕ‰ –ÎàçäÒ×ëÊÍ¤ÍÄŠ·ËØÝÜÒÄêÎáâ—Æm–…’”ÕáÆÛÕæ®z‰ƒ–…’”‰ÌäØæÝäÞÈ–¢’–¾ª…€…’”‰ƒ–…âÕãÜm€…’”Œ†–Ì×èÝËÛ…ÞÝãÝƒåË’ÕåÝËå×’—–£’Ÿ¡–£’Ÿ¡–£’Ÿ¡–£’Ÿ¡–£’Ÿ¡–£’Ÿ¡–£’Ÿ—z‰ƒ–…ææé£m–…’”‰ƒ–ÆçèØØÕÕÉÓèÑ‰ –ÆäèÙÌÏÛÄÖÕäÊ¾¦çèØØÕÂÎåè—Æm–…’”‰ƒ–ÆçèØØÕÕÑÛçä‰ –‡”~‰ƒ–…’”ÏÒè…ÓéäÑÒè…ÛâÊØêÍáæÏÍÄêÆ¬~‰ƒ–…’”‰ƒ–…ææé£m–…’”‰ƒ–…’”‰ƒ–…ÓéäÑÒèÄÞÝãÝƒ¡¢’ÕåÝËå×Í›¼ÊÖê³ÓáÕÀ¡‡’–›ÊØêÍáæË¬äÎæÝÑÕÖÂ–œ‰…€…’”‰ƒ–…’”‰ÈîÈ×ää£m–…’”‰ƒ–…’”‰ƒ–…âÕãÜm–…’”‰ƒ–ÆçèØØÕÕÑÛçä‰ –ÆçèØØÕÕÑÛçäÄ£—Ï~‰ƒ–Êê×ÕÙ×°o’”‰ƒ–…’äÑÜÖ€o’”‰†™…ÙÙä‰×ÞÊ’ÞßÞÕäÆÞ”ÞÊÐÛ…•¡–£’Ÿ¡–£’Ÿ¡–£’Ÿ¡–£’Ÿ¡–£’Ÿ¡–£’Ÿ¡–£’Ÿ¡“sƒ–…’èââ€…’”‰ƒ–…ÜãåÛÑ×Ñ’±ÊÕêÎÕàÕÈÇ×ÙÓÏ—³Òë×àÕÜÀÑŒÆÝäÕÈÂ|”‰ƒÛÝÕÙàÝ€…’”‰ƒ–…âÕãÜm€o’”‰†™’Ÿ¡–£’Ÿ¡–£’Ÿ¡–£’Ÿ—“sƒ–…’—“‰Öê×ç×äÞÕÛ…ÛâÖØÕãÆæÝß×ƒ™ˆ•—“Œ†™ˆ•—“Œ†™ˆ•—“Œ†™ˆ•—“Œ†™ˆ•—“Œ†™ˆ•—“Œ†™ˆ•—“Œ†™ˆ|”‰ƒ™ˆŸ¡–£’Ÿ¡–£’Ÿ¡–£’Ÿ¡“Œm–…’”ÝÎ××ÄÛâÖØÕãÆæÝß×¾ÙÛèÜÎŠÓ…¯”äÒ×âÊ|”‰ƒãÊæÕÏÒÑÜÔäáÑÝÌåÓÍ›ÚØØèÓÓà—Æƒ³…ÜãåÛÑ×Ñ|”‰ƒãÊæÕÏÒÑÜÔäáÑÝÌåÓÍ›ÔÊ×ÛŒÏ”­‰Ç×Ù×~‰ƒ–Ò×èÑÈÌäËáæÝÊ×ßÔàÏ—ÊØêÍáæÏÕÌéÙ™Ñ¦ƒ×ÚæÜßÛÂâÎåèz‰ƒ–…ßÙäÊÂßÓØãâÖÄêÎáâËÄèÙÛ×ÜÎÂêÞâÙ—Æƒ³…ÓæäÒÆâÊÑèéÙÈ€…’”ÖÈêÆÑÝÞÏÒèÒÓèÙØÑÑŒÛâãÝÌêÚæÝß×ŠÓ…¯”Ù×ÖêÎæéÕsƒ–…’áÕÝÄÕÎàÚßÛÐ×ÙÛãÞÄŠâÆàÛåÊÊÛŒÏ”­‰Ï×ÓÙéÑÐÈ€…’”ÖÈêÆÑÝÞÏÒèÒÓèÙØÑÑŒÓçÒÝÕ×Èæ›Í‰ –ÆÔçäÛÄÙÙ|”‰ƒãÊæÕÏÒÑÜÔäáÑÝÌåÓÍ›ÛÎÜíÔäØãÀ–¢’ßÕâÚå×Öçz‰ƒ–…ßÙäÊÂßÓØãâÖÄêÎáâËÍåÚäâÑÕÂÙÔçâäÛÜÂ’±ÓÒë×àÕÜÈÆåÚàèââm€…’”Œ†–××èåÛÑ–ÎàÚßÛÐ×ÙÛãÞsƒ–…’æÕÝØèÓ’áÕÝÄÕÎàÚßÛÐ×ÙÛãÞsm€o|~ÔÎÉ–ÆäèÙÌÏÛÄÓ×ÓÎÖéÎÔÝÜÒ×ïâáÙÍŒ°o’”‰…˜‡|”‰ƒ££’ÇÓÊÑ–ÙÚÙàÈØ…âÕ×ÎƒÙÔäæÕÜÓåÓØÝÞÐm–…’”äØƒêÍ×”àÖÌÚ…×âäÛÜ–Ôà”äÑÈ–ÓÕÖÙ‰ÖÛ×èÙâ•m–…’”ÖÒÑÚ…éÜÕÛÈ–ÙÚÙÏØâÑ’ÕâÝÌÙÑ×”ÓÊÑ–Ç×”âÎ×èÎ×êÕsƒ–…’œåÛÏ–ÑÛâÛ’ƒ×ÓÖ”âÎ×ë×à”äÑÈ–ÑÛçä‰ÒÜ…çæÜ‰ÉåÚàØžsƒ–…’–’‹m€…’”Œ†–ÎßäßÛ××ÙÛãÞsƒ–…’ÝÝÙÒèÙ’æÕÚØÛØæçz‰ƒ–…ØæßÖƒØØ¦”ÙÖÓå×æ”²ÎÄëÙÛÚåÕ¶åÚâ~‰ƒ–ÎßäßÛ×–××~z‰ƒ–…•—ÙÄèÆßÙäÎÕéo’”‰ÈîÙ×æÞÊÏÕØáéâÌÈé…¯”ËÆm–…’”äÊÕÝÊæÓåÛÏ–¢’–ØÝ×æØ¬£ŸàÚí“à×ÒÒ‘äÑß¢ÞÒË¤ÌáêŸÙØØÒ×ØŸ¨×Û×ß±’”Öê×šäÝÒÇŸo|”‰ƒ™ˆ’»ÕÝƒâÎàßã‰ÉèÔß”äÑÈ€…’”Œ†–«çàÜ‰·ÛÝæ”ÃØØèÈ×çÙÄèÙ’ãÖ‰×ÞÊ’ëÕËƒæÆÙÙz‰ƒ–…ä”­‰ÕÛÖçÙãÝÖ¤Ì×è˜ÝÄèÌ×èÏÞÕâŽ|”‰ƒéÔçä¦ƒ¸ÊÓéäÒÉëÑÅãåÙ‹è“æÙèÝ–ŒÚèÝÕ‘æÆäçÕÛŠŸo’”‰Ð×ÙÕÜÏÎÛêÊäâÑÕÂè…¯”âÎ‘éÊÓæÓÑ‹¡Ú¨®¯ØâÑ’ÈÕá×–¸áéâÌÈé¡¡Ü¤§ŸëÑ°œž”Œ²”Ó²¬˜Ïß£®£åÕ¡²Í¦²½ÎÇßÈÓà¬˜Ëª£™ Û‘êÊêè™sƒ–…’ÝÖ‘Ð×ÙÕÜÏÎÛêÊäâÑÕÂèŽ¬~‰ƒ–…’”ÛÂâÎåè¦ƒãÆæ×ØÈÈîÙ×æÞÊÏÕ× ÛâØØæ£z‰ƒ–…’”‰ÏßÓÝç¦ƒèÊ ÚÙ×Ç×ÑÞœ—ÑÕÛË¯Ð’Ñ×êÕÍçÍä“¢–ï®Ÿ˜‘ñ—ž¥¨™àÒ‡’æÕÏ ‘’æÏÕÌéÙ›~‰ƒ–…’”ÏÒè…×àä‰Ìä…ÞÝÞÔÖ°o’”‰ƒ–…’”‰ƒéÔçæÓÎƒ³…×àä—ÕÛÕÞÕÓÎ‹˜Á””âÎÉ³‡ž”’‹Œ€…’”‰ƒ–…’”‰ÖåÚä×Õ‰ –ØáéâÌÈ¤××äÜÊÆÛ”ÜâÎÉ³Á”–œ‰…˜Ž|”‰ƒ–…’”‰ƒ–ÊêèÕÛÑ×ÑÑçßÞÕÙÊå¢ÑÙÓÛÓÖœãØØèÈ×zsƒ–…’æÕÝØèÓ’ÙèÝÈèÓÓàÏÜÒë×ÕÙãs
+#!/usr/bin/python
+#coding: utf8
+
+
+##
+## => Retrieve information online
+##
+## -> Use pmid to retrieve informations
+## from the pubmed database through the Bio.Entrez API
+##
+## -> Parse html page from the ncbi to find links to
+## external resources
+##
+## TODO:
+##  -> Break the dependence to the Bio.Entrez lib
+##
+
+
+def get_meta_information(pmid):
+    """
+    -> Parse meta data of the article to get the
+        - title
+        - journal
+        - date
+        - author list
+        - article type
+        - institution
+        - Abstract
+        - Country journal
+        - Language
+        - Keywords
+
+    -> return a dictionnary with meta information
+
+    -> TODO:
+        optimisation of the institution extraction
+    """
+
+    ## importation
+    from Bio import Entrez
+    from Bio.Entrez import efetch, read
+
+    ## parameters
+    Entrez.email = 'murlock.raspberypi@gmail.com'
+    title = "NA"
+    journal = "NA"
+    date = "NA"
+    author_list = "NA"
+    article_type = "NA"
+    institue = "NA"
+    language = "NA"
+    abstract = "NA"
+    keywords = "NA"
+    journal_country = "NA"
+    meta_information = {}
+
+    ##-------------##
+    ## Access data #############################################################
+    ##-------------##
+
+    ## Parse XML response #----------------------------------------------------#
+    handle = efetch(db='pubmed', id=pmid, retmode='xml', )
+    xml_data = read(handle)
+    article_data = xml_data['PubmedArticle'][0]['MedlineCitation']["Article"]
+    publication_data = xml_data[u'PubmedArticle'][0][u'MedlineCitation']
+
+    ## Get the article type #--------------------------------------------------#
+    try:
+        article_type = article_data['PublicationTypeList'][0]
+    except:
+        pass
+
+    ## get the article title #-------------------------------------------------#
+    try:
+        title = article_data['ArticleTitle']
+    except:
+        pass
+
+    ## get the publication language #------------------------------------------#
+    try:
+        language = article_data['Language']
+    except:
+        pass
+
+    ## get the journal country #-----------------------------------------------#
+    try:
+        journal_country = publication_data[u'MedlineJournalInfo'][u'Country']
+    except:
+        pass
+
+    ## get the list of keywords #----------------------------------------------#
+    try:
+        keywords = publication_data[u'KeywordList']
+        if(len(keywords) == 0):
+            keywords = "NA"
+    except:
+        keywords = "NA"
+        pass
+
+    ## get the abstract #------------------------------------------------------#
+    try:
+        abstract = article_data['Abstract']['AbstractText'][0]
+    except:
+        pass
+
+    ## get the date #----------------------------------------------------------#
+    if(len(article_data['ArticleDate'])> 0):
+        date_data = article_data['ArticleDate'][0]
+        date = str(date_data['Day'])+"/"+str(date_data['Month'])
+        date += "/"+str(date_data['Year'])
+    else:
+        try:
+            date_data = article_data['Journal']['JournalIssue']['PubDate']
+            date = str(date_data['Year'])
+        except:
+            pass
+
+    ## get the institute #-----------------------------------------------------#
+    try:
+        institue =  article_data['AuthorList'][0]['AffiliationInfo']
+        institue = institue[0]['Affiliation']
+    except:
+        institue = "NA"
+        pass
+
+    ## get the list of author #------------------------------------------------#
+    try:
+        author_data = article_data['AuthorList']
+        author_list = ""
+        for author in author_data:
+            try:
+                author_list += author['LastName']+" "+author['Initials']+", "
+            except:
+                pass
+        author_list = author_list[:-2]
+    except:
+        pass
+
+    ## get the journal name #--------------------------------------------------#
+    try:
+        journal = article_data['Journal']['Title']
+    except:
+        pass
+
+
+    ##-----------------------##
+    ## structure information ###################################################
+    ##-----------------------##
+    meta_information['title'] = title
+    meta_information['journal'] = journal
+    meta_information['date'] = date
+    meta_information['author_list'] = author_list
+    meta_information['article_type'] = article_type
+    meta_information['institution'] = institue
+    meta_information['language'] = language
+    meta_information['asbtract'] = abstract
+    meta_information['keywords'] = keywords
+    meta_information['journal_country'] = journal_country
+
+    ## return information
+    return meta_information
+
+
+
+
+
+def article_accessibility(pmid):
+    """
+    -> Scan the web page corresponfing
+    to the pmid entry on the ncbi server,
+    find where the full article can be retrieve
+    (url link) and return the list of url found.
+    """
+
+    ## importation
+    import requests
+    from bs4 import BeautifulSoup
+    import re
+
+    ## parameters
+    external_sources = []
+    target_url = "https://www.ncbi.nlm.nih.gov/pubmed/?term="+str(pmid)
+
+    ## Get links from the
+    ## Full Text Sources part of the web page
+    r = requests.get(target_url)
+    soup = BeautifulSoup(r.text, 'html.parser')
+    match_external_r = re.search('<h4>Full Text Sources</h4><ul>(.+)</a></li></ul><h4>Medical</h4>', r.text)
+    if(match_external_r):
+        r_list = match_external_r.group(1)
+        links = re.findall('href=\"http[s]{0,1}://.{2,180}\" ref=', r_list)
+        for elt in links:
+            source = elt.replace("\" ref=", "")
+            source = source.replace("href=\"", "")
+            external_sources.append(source)
+
+    return external_sources

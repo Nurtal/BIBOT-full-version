@@ -1,1 +1,275 @@
-“Š’ëØä£ÒÒÑ¥ÕëèØØÑ€ˆÕãÔÒÑÝŸ’éäÏ›€o|—“s†™…¯²°ÈäÊäÕäÎƒêÆÔàÕÜƒ×ÓÖ”ÖÒÊë××çÊ×–ÉÛÚÖÎÕÛÓæ”ÖØÕãÆæ~“Œm™ˆ|—“s†™…ÆÃ´¸€ˆ•”–¡–ÕÞãä‰ÓëÇÞÝÓÊ×ßÔà”ÕßÒâÚæÝß×ƒåÛ×æÝÌãÊ’±®‰¾º´À¹Ís†™…’¡®‰ÓâÔæ”ÓØØäÙäíÛÈæÆäèÙÝÌåÓ’œÚØØèÓÓà™‰ ´…Í¸¿·¨Óo•—‰´…âàßÝƒæÚÔàÙÌÄêÎáâÝÜæÊ’æÕÙÄèÙÛèÙØÑ–¢°”Ë­²ÄªÏ~“Œƒ–’°”àÕÒê…ÝÙéàÒèÉ’æÕÙÄèÙÛèÙØÑ–¢°”Ë­²ÄªÏ~“Œƒ–’°”·ÎÑÛ×ÓèÕ‰ÅßÌ’èÑËÏÛ…¯²Ä§Å³·ÑzŒ†–…Ÿ²°ÈäÊäÕäÎƒÞÙßàÛÈæÔäè¦¡–À¶Ã¾®À€ˆ•”s†™…’¡®‰ªÛÓ×æÑÝÈ–ÕÖÚÛÈæÔäèzŒ†–…Ÿ²°ÈäÊäÕäÎƒâÆæÙè‰ÕÛÕáæäs†™…’¡®‰ÓâÔæ”ÓØØäÙäíÛÈæÆäèÙÝÌåÓ’œÑÞ×ÞÔäzŒ†–…Ÿ²ÙÏåÙ’ßÕâÚå×ÖçËÜ–ÈáéÞÝÕïo•—zŒ†€ˆ•”–¡–ÈÚÙÓÔƒëØÓÛÕ‰ÆåÓÖÝäÒÒä…Øãâ‰È×ÈÚ”æÒÖëÆÞÝãÊ×ßÔà”ÜÒÅ€ˆ•~zsmÚÊØ”àÕÒêÄâéÒÕÌÙÆæÝß×ÂÛÛáàåÝÌåÓšáÕÝÄÕÎàÚßÛÐ×ÙÛãÞ’€…’”‹…˜o’”‰ÓâÔæ”ÕßÒâÚæÝß×ƒåË’èØÎƒäÚßÖÕÛƒåË’äåËÏßÈÓèÙØÑ€…’”ØÙÛ×’èÙÖÈ€…’”‹…˜o|”‰ƒ™ˆ’ÝÝÙÒèÙÓèÙØÑ€…’”ÒÐæÔäèÖÄêÕÞãäÕÌØ“âíàÕÒê…ÓçÙÏêo|”‰ƒ™ˆ’äÑÛÄãÊæÙâÜm–…’”éÎÄèÄæãÏ×ÅÕÔØÓÑÛ×ßÈÞÙã‰ –àï~z‰ƒ–…•—¼ÈâÊÕèÒÑÜÔäáÑÝÌåÓ’ÚâØÐ€…’”Œ†–Ò×èÑ‰ÌäËáæÝÊ×ßÔà~‰ƒ–ËáæÙÐßÉ’ÝÞ‰ÐÛÙÓÓÙ×Éå×ßÕäÒÒä“ÝÙéÜ‹ŸŸ|”‰ƒ–…’”ÔÊ×Û…¯”ÝÎ××ÄÛâÖØÕãÆæÝß×¾æÒÛØÍÄŠÚÆæÙ—Æm–…’”‰ƒ–ÎØœãÝÕžÉÓèÕ’ƒ—¢’–¾ª…–ÆàØÕÈäÖÕäÎŒ–£¯”¤’€…’”‰ƒ–…’”‰Ç×Ù×”­‰Ç×Ù×ÏÓo’”‰ƒ–…’”‰ƒßËšØÑÝÈ–ÓáèÒÑ–Þ×ÕâÈ×åÄàÖÏØÉÕÆäèÙÌÏÛØ›®z‰ƒ–…’”‰ƒ–…’”‰ƒïÊÓæÏÝÒÕÓÔÓßÏÂ××æÝÓÕÈéÀÖÕäÎÀ–¢’¥z‰ƒ–…’”‰ƒ–…’ÙÜÜÈ°o’”‰ƒ–…’”‰ƒ–…’”éÎÄèÄæãÏ×ÅÕÔØÓÑÛ×ßÈÞÙãÄÇ×Ù×Ñ” ––|~‰ƒ–ˆ•”·ÎÑÛ×ÓèÕ‰ÄäÉ’çÑßÈ–ËÛÛåÛÈ€…’”ÙÏê“ÔÕâ‘ÜÛÆäÓäØÂäÇÑãÖÈÄèÙÛ×ÜÎÖ¤Ð×íã‘Œ¢…ëÙÑÛÂêÔÑâÒÈÒÜÄÓæäÒÆâÊå¢æÊÏëÊåœ™•m–…’”‰ƒ–…’”ÌÒâÔä±—ËŠ¢o’”‰ƒ–…’”‰ƒ×ÑÛÛÞ¦ŠÙÊàèÕÛŠ¢o’”‰ƒ–…’”‰ƒíÎÖèØ¦“¤˜›~‰ƒ–ÕÞèžá×ßÈÝç˜ÛÒêÆæÝß× ªš›~‰ƒ–ÕÞèžÜÄìÊØÝ×‘…ßÒÓÛÕÜ’êÎßÙÏÎÙåÑçèÙØÑ¤ÕàÛ’’m–…’”àÕ×¤ÈÞããÎ‹Ÿo|~zÍÈÜ…âàßÝÂÙÔçâäÛÜÕ××äÑÛ×ßÙÛãÞ‘ÐÛÙÓÓÙ×Éå×ßÕäÒÒäŽ¬~‰ƒ–‡”–z‰ƒ–…ÂàßÝƒ×…âÝÕ‰ÆÞÆäèàÌêÍ’èØÎƒèÊâÕâÝÌêÎáâØÉ€…’”ÓÒë×àÕÜÖ–ÈáéÞÝÕïo’”‰…˜‡|~‰ƒ–ˆ•”ÙÖÓå×æÕäÒÒäo’”‰ÌãÕáæä‰Ð×ÙâàßÝÏßÇ äéÙÏåÙ’Õã‰ÓâÙ|~‰ƒ–ˆ•”àÊÕ×Ò×èÕÛÖ€…’”ÌÒëÓææéÈ×åÄàÖÏØÉÕÆäèÙÌÏÛØ’±äà€o’”‰†™…ÅÙÜÎÆê…ÛâÖØÕãÆæÝß×ƒÜ×ááz‰ƒ–…•—ÖÈêÆ’ÝÞÏÒèÒÓèÙØÑ€…’”ÏÒè…âáÙÍƒßÓ’áÕÝÄÕÎàÚßÛÐ×ÙÛãÞ—ÎÛÞåœ™£m€…’”‰ƒ–…Õãå××èÞ’±ÖÈêÆÑÝÞÏÒèÒÓèÙØÑÑÕßÝÔÆ¾Ïáéâ×ÄâÄÕãå××èÞ™Ñz‰ƒ–…’”‰ÌÜåèâ‘ÆåÚàèââŒ–†¯”’·¤˜Ž¬~‰ƒ–…’”‰ƒ–…ÛÚ˜ÌÒëÓææé‰ÑåÙ’ÝÞ‰ÆåÚàèââÂêÔÑâÒÈÒÜÄÓæäÒÆâÊåªsƒ–…’”‰ƒ–…’”‰ƒ–ÈáéÞÝÕïÄæãÏ×ÅÕÔØÓÑÛ×ßÈÞÙãÄÆåÚàèââÀ–¢’¥z‰ƒ–…’”‰ƒ–…’ÙÜÜÈ°o’”‰ƒ–…’”‰ƒ–…’”ÓØØäÙäíÏÝÒÕÓÔÓßÏÂ××æÝÓÕÈéÀÕãå××èÞÏ”›¦ƒ§o|”‰ƒ™ˆ’»Õ×ÈèÆæÙ¹ÌÛ…ÕÜÑÛ×€…’”ÙÏê“ØÝ×ÞÕÛ£ ÏÌÝØÛîÕ¦‹¬‘¨™sƒ–…’àÑËÈâØ’±ÌÒëÓææéÈ×åÄàÖÏØÉÕÆäèÙÌÏÛØ ßÕâÖžŽ|”‰ƒÜ×Ó×ã‰ –ÈáéÞÝÕïÄæãÏ×ÅÕÔØÓÑÛ×ßÈÞÙã—Ù×ÑçÙã‘Œ€…’”ÙÏê“âÝÕ‘ÉèÆÕçœ‰Ï×Ç×àã¦Ï×Ç×àã•ƒ×ÚæãàÌ×³Œ—¥žšÉ›Š™ Ü×××æÕÞÐÏÛ¢«¤™sƒ–…’äÜÝ‘éÆèÙÖÒÊž‡ÛáÑÐÈé”Õãå××èÞÑæÕÙÄèÙÛèÙØÑ¤ÕàÛ’’m–…’”àÕ×¤ÈÞããÎ‹Ÿo|~zÍÈÜ…âàßÝÂ××æÝÓÕÈÕÙëäÕ‘ÐÛÙÓÓÙ×Éå×ßÕäÒÒäŽ¬~‰ƒ–‡”–z‰ƒ–…ÂàßÝƒ×…âÝÕ‰ÆÞÆäèàÌêÍ’èØÎƒèÊâÕâÝÌêÎáâØÉ€…’”ÊÕêÎÕàÕ‰×ïÕ×~‰ƒ–‡”–zsƒ–…’—“‰ÌãÕáæäÊ×ßÔà~‰ƒ–ÎßäßÛ×–ÒÓèàÕÒêÑÛÖžÙÜæÑáèÊÖ–ÕÞèzsƒ–…’—“‰Ó××ÓáÕÝÈèØ|”‰ƒêÞâÙÏÝÒÕÓÔÓßÏÂ××æÝÓÕÈé…¯”ëæm€…’”Œ†–¸×àÕÌ×–ÎàÚßÛÐ×ÙÛãÞ‰ÉèÔß~‰ƒ–ˆ•”ÝÎ××…ÛâÖØÕãÆæÝß×m–…’”ÖØÕ–ÕßÝÔ‰Ìä…ßÙäÊÂßÓØãâÖÄêÎáâžÔÈïØšªsm–…’”‰ƒ–ÙëäÕ‰ –Ò×èÑÈÌäËáæÝÊ×ßÔàÏàÖÌÚÂÍ›ÑÛ×ßÈÞÙÏÝÜæÊ™Ñz‰ƒ–…’”‰ÌÜåèâ‘×ïÕ×Š –‡Àµ’’€…’”‰ƒ–…’”‰ÌÜæíàÎƒäÔæ”Ù×ƒêÞâÙÏÝÒÕÓÔÓßÏÂ××æÝÓÕÈéŽ¬~‰ƒ–…’”‰ƒ–…’”‰×ïÕ×ÓäØÂäÇÑãÖÈÄèÙÛ×ÜÎÖÑÙëäÕÆƒ³…£~‰ƒ–…’”‰ƒ–…×àãÎ€…’”‰ƒ–…’”‰ƒ–…’èéÙÈÕÙáÓÞËÂåËÑÕâÝÌÙÑ×çËÝÜæÊÏ”›¦ƒ§o|”‰ƒ™ˆ’»Õ×ÈèÆæÙ¹ÌÛ…ÕÜÑÛ×€…’”ÙÏê“ØÝ×ÞÕÛ£ ÏÌÝØÛîÕ¦‹¬‘¨™sƒ–…’àÑËÈâØ’±ÝÜæÊÑèßÈÑØÄáÚÏÊÕêÎÕàÕÜ‘áÊëç˜’m–…’”ÖÛÄÙØ’±ÝÜæÊÑèßÈÑØÄáÚÏÊÕêÎÕàÕÜ‘ìÆÞéÕÜ‹Ÿo’”‰ÓâÙ äÙÎ‹Ü×Ó×ã•ƒâÆÔÙÜÜ âÆÔÙÜÜ–ÆçèßÙÆê¢™™¡—”ÜŠ—›œ‰ÖêÆäèÑ×ÊâÊ¯­ ’m–…’”àÕ×¤ØÓêÕÏÌÝ”ÝÝÊÊÛØ¡ÕâÝÌÙÑ×ÓäâÓÛÄäÙàÊÕêÎæÝß×‘æÓÙ–™sƒ–…’äÜÝ‘ÙÑáçÕ‘Œ€o|ØÕÏƒæÑáèÏÔÈïÜáæÔÈÕÛÕÓæäÒ×ßÔàœÝÎ××ÄÛâÖØÕãÆæÝß×Œ°o’”‰…˜‡|”‰ƒÆÑáèÔÈïÜáæÔ‰ÕÛÕÓæäÒ×ßÔà”Ù×ƒ×…âÝÕ‰ÆÞÆäèz‰ƒ–…”–’sm–…’”“ŒƒßÒâãâÝÄêÎáâz‰ƒ–…ÛáàØÕê…ßÕäÙÏåÙÞÝÒ—ÓïÕÞãä‰Äé…âàäsm–…’”“ŒƒæÆäÕÝÎ×Û×å~‰ƒ–Ð×íçØÕÚØÑèßÈÑØÄáÚÏÊÕêÎÕàÕÜƒ³…íñzsƒ–…’—“‰¶ÛÑ××ä‰ÌäËáæÝÊ×ßÔà”ÖÛÒão’”‰†™…ßÙäÊƒßÓØãâÖÄêÎáâz‰ƒ–…Øãâ‰ÓãÎÖ”Ù×ƒãÊæÕÏÒÑÜÔäáÑÝÌåÓ ßÕâÖžŽ¬~‰ƒ–…’”ÔÈïÜáæÔÜƒ³…ßÙäÊÂßÓØãâÖÄêÎáâËÙÐßÉÏÏ—ÔÈïÜáæÔÜŠÓo|”‰ƒ–…’”ÙÏ‹âÊàœÛÎÜíÔäØã’ƒ´…¢”Ñ×Ç–Øææ˜ÔÈïÜáæÔÜŒ–†¯”’·¤˜Ž¬~‰ƒ–…’”‰ƒ–…Øãâ‰Úå×Ö”Ù×ƒáÊëëßÛÇéÀ¢Ñªsm–…’”‰ƒ–…’”‰ƒ–…ÛÚ˜àÒèÉ’âßÝƒßÓ’ßÕâÚå×ÖçÏÝÒÕÓÔÓßÏÂ××æÝÓÕÈé“ÝÙéÜ‹ŸŽ¬~‰ƒ–…’”‰ƒ–…’”‰ƒ–…’ßÕâÚå×ÖçÏÝÒÕÓÔÓßÏÂ××æÝÓÕÈéÀéãâÍÀ–¢’¥z‰ƒ–…’”‰ƒ–…’”‰ƒÛÑåÙªsƒ–…’”‰ƒ–…’”‰ƒ–…’”ÔÈïÜáæÔÜÂêÔÑâÒÈÒÜÄÓæäÒÆâÊåÏçØÕÚÂ’Ÿ­‰”€o’”‰†™…¹ÙÞÎÕ×Ù×”Ñ×Ç–ØÓêÕ‰ÉßÌçæÕsƒ–…’äÜÝ‘ÜÎÙéâÎ‹§‘’ÚÙÐÖßß×±˜Ÿ¬Ž›~‰ƒ–ÑÓÖÕÕÖ–¢’ßÕâÚå×ÖçÏÝÒÕÓÔÓßÏÂ××æÝÓÕÈé“ÝÙéÜ‹Ÿo’”‰ÉèÆÕç¦ƒáÊëëßÛÇéÄæãÏ×ÅÕÔØÓÑÛ×ßÈÞÙã—Ù×ÑçÙã‘Œ€…’”ÙÏê“âÝÕ‘ÉèÆÕçœ‰Ï×Ç×àã¦Ï×Ç×àã•ƒ×ÚæãàÌ×³Œ—¥žšÉ›Š™ Ü×××æÕÞÐÏÛ¢«¤™sƒ–…’äÜÝ‘éÆèÙÖÒÊž‡ÛáÑÐÈé”ÝÙéàÒèÉåÓâÎÓ××æÝäÒÒä“ââ×‹Œ€…’”ÙÏê“ÕàßÜÈžŽ|~zsÇÛË’ÛÕ×ÈèÆæÙÏÖÈêÆÑèÑËÏÛßÙäÊÂßÓØãâÖÄêÎáâ™£m–…’”’‹…€…’”²±–µÄÃ·»¨É¸|”‰ƒ˜‡”~z‰ƒ–…•—ÙÄèÒÓÙäÎÕéo’”‰××ÇÞÙÏÏÌâÊ’±ØÓÛÓš–äÊÅâÊÑÚÙÕÈ¤Ùåê’•ƒ˜Ü”zsƒ–…’—“‰ªÛÙ’èØÎƒÞÊÓØÕÛm–…’”ØÎÄÚÊä”­‰…æÒÛØÌÝ×ßÙÞÙÌÝÄëÙÚãâÜ¿êÎàçäÒ×ëÙÛãÞÅ×ÚÆæÙÌÝÍåÚäâÑÕ¿êÈáéÞÝÕïÁæàÑ×ÊëÆÙÙÌ×…€o’”‰†™…ÙÙä‰Ç×ÙÓ~‰ƒ–Ù×ìä‰ –‡”~‰ƒ–ËáæÙÐßÉ’ÝÞ‰ÐÛÙÓÓÙ×Éå×ßÕäÒÒä“ÝÙéÜ‹ŸŸ|”‰ƒ–…’”ÜÒÑÛ…¯”ãÝÕžÕßÝÔ’Ž˜Áæ–›ÖÈêÆÑÝÞÏÒèÒÓèÙØÑÑÕßÝÔÆ¾ÙÛèÜÎŠÓ”Ðä‹m–…’”‰ƒ–ÑÛâÕ‰Ž³…ßÙäÊÂßÓØãâÖÄêÎáâËÙÐßÉÏÏ—ÊØêÍáæÏÕÌéÙ™Ñ›‹¿ê‡|”‰ƒ–…’”ÜÒÑÛ…±ÖÈêÆÑÝÞÏÒèÒÓèÙØÑÑÕßÝÔÆ¾ÎàçäÒ×ëÙÛãÞÀ¡‡Îè’sƒ–…’”‰ƒâÎàÙ” –Ò×èÑÈÌäËáæÝÊ×ßÔàÏàÖÌÚÂÍ›ÔÊ×ÛŒÏŸ’Å×˜o’”‰ƒ–…’àÙ×È–¯”ÝÎ××ÄÛâÖØÕãÆæÝß×¾æÒÛØÍÄŠàÔçæÞÊÏÂ–ÌÝ…€…’”‰ƒ–…ÞÝÞÎƒ¡¢’áÕÝÄÕÎàÚßÛÐ×ÙÛãÞÄÓãÎÖÑËÍåÚäâÑÕÂÙÔçâäÛÜÂ–ÌÝ…€…’”‰ƒ–…ÞÝÞÎƒ¡¢’áÕÝÄÕÎàÚßÛÐ×ÙÛãÞÄÓãÎÖÑËÏ×ÓÙéÑÐÈÂÍ¤Í”…ÒÓ”~‰ƒ–…’”ÝÈîÙ’Ÿ­‰ÏßÓ×~‰ƒ–Ù×ìä‰ –Ù×ìäÄ£–Ï~z‰ƒ–…•—àÕßÙ×”ÔÊ××…ÛâäØƒÜÎÞÙz‰ƒ–…æÕÒÕÈÕËÛàÕ—ÚèÎæÙ˜ÑÈ×É×æžÎÑÙÔÖÙ˜ØêËª›™’m–…’”äÊÅâÊÑÚÙÕÈ¤ÜäÝäÎ‹êÊêèžÎÑÙÔÖÙ˜ØêËª›™’m–…’”äÊÅâÊÑÚÙÕÈ¤ÈÞããÎ‹Ÿo|~zsmÚÊØ”çÛÌêÊÑÜäÖÏÕ××äßÛ×žÒ×èÑÈÌäËáæÝÊ×ßÔàªsƒ–…’–’‹m–…’”­§ƒÍ×ÛèÕ‰Ä–ÍæáÜ‰ÕÛÕáæä‰ÉèÔß”ÝÎ××…ÛâÖØÕãÆæÝß×m–…’”‰ƒ–’’»Õ×ÈèÆæÙÊÑÚ…âàßÝƒÜÎÙéâÎÖ€…’”¦¡–¹Á¸¿£m–…’”‰ƒ–’’éãÎƒêÔ’ØÕËØÝ…áâÜÒÑÛ…äÙäÛÌÛÛÓà‘ÖæÊÕÝÖÒÆ–ÎàÚßÛÐ×ÙÛãÞ‰ÕÛÙäÝÕßÄâŽ|”‰ƒ–…’”‰¤ÚÉ’çßÖÈ–ÏÓêÑÜÆèÎâèz‰ƒ–…’”‰–µÓÝÜÕÈêÙ×çz‰ƒ–…”–’sm–…’”“Œ£’Ÿ¡–£’Ÿ¡–£’Ÿ—“sƒ–…’—“‰ªÛÓ×æÑÝÈ–«ÛÛåÛÈé…•—“Œ†™ˆ•—“Œ†™ˆ•—“Œ†™ˆ•—“Œ†™ˆ•—“Œ†™ˆ•—“Œ†™ˆ•—“Œ†™ˆ•—“Œ†™ˆ|”‰ƒ™ˆŸ¡–£’Ÿ¡–£’Ÿ¡–†™o’”‰ÓâÔæÓàÞÅâÎÕÕäÒÒäÄ×êßÕØêÎáâ˜ÖÈêÆÑÝÞÏÒèÒÓèÙØÑŸo’”‰ÓâÔæÓÓØØäÙäíÏÛÈæÆäèÙÝÌåÓšáÕÝÄÕÎàÚßÛÐ×ÙÛãÞ’m–…’”àÕÒêÄÓæäÒÆâÊÑèéÙÈžÒ×èÑÈÌäËáæÝÊ×ßÔàz‰ƒ–…âàßÝÂáÊëëßÛÇÕ××äÑÛ×ßÙÛãÞ‘ÐÛÙÓÓÙ×Éå×ßÕäÒÒäŽ|~z‰ƒ–…•—–£’Ÿ¡–£’Ÿ¡“Œm–…’”“ŒƒÍ×ÛèÕ‰µÛÕáæä‰†™ˆ•—“Œ†™ˆ•—“Œ†™ˆ•—“Œ†™ˆ•—“Œ†™ˆ•—“Œ†™ˆ•—“Œ†™ˆ•—“Œ†™ˆ•—“Œ†™ˆ•~‰ƒ–ˆ•¡–£’Ÿ¡–£’Ÿ—“sƒ–…’æÕÙÒèÙÑÚÙÕÈ–¢’ãàÎÑž‡äÙàØÕê“ÚèÝÕ…¢…”ë’’m–…’”âÎÓå×æÓÖÒÏÛ“éæÙÝÈž‡®ÜäÖÏ´Áà–™sƒ–…’æÕÙÒèÙÑÚÙÕÈ¤ÜäÝäÎ‹˜¡ÚÙÑÍ¡ÒÓÎè¬ÝÌêÑ×²²²¥Å¹®£äÒ×âÊ°ÐÞ¥’ÞÊÓØ®ÅÑ˜Ž|”‰ƒèÊâãâÝÂÜÎÞÙžàÕßÙ×œ’¥ÅåÉë²Ì×…Ÿo’”‰ÕÛÕáæäÈÉßÑ×¢çÛÌêÊš–ÌÝŸÞ–°¶¹«²Ê…ÓâÑÕÜéÊä°ŸÑ”´Áà–™sm–…’”“ŒƒßÓÕàåÍÈ–«ÛÛåÛÈéo’”‰ÕÛÕáæäÈÉßÑ×¢çÛÌêÊš–ÌÝŸßÒÙ”ãÛÆ³Á”ÝÝÊÊÛØ¡èÙÖÈÕÊèãÜÞ×ßÔà¢à×ÊÒ‡°ÐÞ‹Œ€…’”ÛÈæÔäèÏÏÌâÊ ëâÒ×Û”Ðä¥ÌãÌ’çâÌ Ò‡ÛáÑÐÈé”Õãå××èÞÑæÕÙÄèÙÛèÙØÑ¤ÕàÛÌ‹¡ÒÓ”z‰ƒ–…äÙàØÕêÄØÝÜÎ‘í×ÛèÕ‘…ÒÙ®ÝÝÐƒé×Õ±Ì‹ÌãÆÙÙã˜ÎÛÞéãâÍÖÕ××äÑÛ×ßÙÛãÞ—ÓäÌÎ–®ÅÑ˜Ž|”‰ƒèÊâãâÝÂÜÎÞÙžàÕßÙ×œ’Å×²ÎßÛÜÕÙ¢Î–ÙÖÄÝÊå£ÑÛ×ßÈÞÙÏÝÜæÊÑæÕÙÄèÙÛèÙØÑ¤ÕàÛÌ‹¡ÒÓ”zsƒ–…’—“‰ÚèÎæÙÝÄØÑ×~‰ƒ–××äßÛ×ÕËÛàÕ—ÚèÎæÙ˜‹ŸêÆÔàÕ§¿ä‡›~‰ƒ–××äßÛ×ÕËÛàÕ—ÚèÎæÙ˜‹Ÿê×°ÐÞ‹Œ€…’”ÛÈæÔäèÏÏÌâÊ ëâÒ×Û”°äÑ¡Æ²»¸¬˜×Þ£Îâ’’m–…’”âÎÓå×æÓÖÒÏÛ“éæÙÝÈž‡®èØ§·ßÙÞÙ¬˜×Þ£Îâ’’m–…’”âÎÓå×æÓÖÒÏÛ“éæÙÝÈž‡®èØ§§×Ù×°ŸÝË´Áà–™sƒ–…’æÕÙÒèÙÑÚÙÕÈ¤ÜäÝäÎ‹˜¡æÜ®ªØêÍáæã¥’êÍ°ÐÞ‹Œ€…’”ÛÈæÔäèÏÏÌâÊ ëâÒ×Û”°äÑ¡ÀÔçæÞÊÏ²”æÜ®ÅÑ˜Ž|”‰ƒèÊâãâÝÂÜÎÞÙžàÕßÙ×œ’¥×Þ£¼ãåÛÑ×Ñ’·ßÞÑê×ë°ŸÝË´Áà–™sƒ–…’æÕÙÒèÙÑÚÙÕÈ¤ÜäÝäÎ‹˜¡æÜ®µÄäÌçÕ×ÎÖ²”æÜ®ÅÑ˜Ž|”‰ƒèÊâãâÝÂÜÎÞÙžàÕßÙ×œ’¥×Þ£³æäÒÆâÊ’ÈéÙÈ²”æÜ®ÅÑ˜Ž|”‰ƒèÊâãâÝÂÜÎÞÙžàÕßÙ×œ’¥×Þ£»âãÝÌêÚæÝß×Ö²”æÜ®ÅÑ˜Ž|”‰ƒèÊâãâÝÂÜÎÞÙžàÕßÙ×œ’¥×Þ£½ÙéàÒèÉå°ŸÝË´Áà–™sƒ–…’æÕÙÒèÙÑÚÙÕÈ¤ÜäÝäÎ‹˜¡¡èâ§¿ä‡›~z‰ƒ–…Øãâ‰ÓãÎÖ”Ù×ƒãÊæÕÏÒÑÜÔäáÑÝÌåÓ ßÕâÖžŽ¬~‰ƒ–…’”ÒÑÜÔäáÑÝÌåÓ’±ÖÈêÆÑÝÞÏÒèÒÓèÙØÑÑÕßÝÔÆm€…’”‰ƒ–…ÞÕÞÐØ×Ì×”­‰…˜o’”‰ƒ–…’ÝÖ‘ÌäËáæÝÊ×ßÔàÏ—ÕÄäÌçÕ×ÎŠÓ…“±‹±·‡›®z‰ƒ–…’”‰ƒ–…’ÚßÛƒÛÑæ”Ù×ƒßÓØãâÖÄêÎáâËÏ×ÓÙéÑÐÈÂ¬~‰ƒ–…’”‰ƒ–…’”‰Ï×ÓÙéÑÐÈ–¯”ãÝÕžÊÞè™”…¢‡|”‰ƒ–…’”‰ƒ–ÑÓâ×ÞÄÝÊ’±ÕÄäÌçÕ×Î¾°’£Ñzsƒ–…’”‰ƒáÊëëßÛÇé…¯”’‹m–…’”‰ƒ–ÎØœÙ×Éå×ßÕäÒÒäÀ™ßÕâÚå×Öç—Æƒ—¢’–¾ª…ŸŸ|”‰ƒ–…’”‰ƒ–ËáæÎÏê…ÛâÒÑÜÔäáÑÝÌåÓÍ›ÛÎÜíÔäØãÀÑ•Ï®z‰ƒ–…’”‰ƒ–…’”‰ƒáÊëëßÛÇé…±ÎÏê…–œ‹m–…’”‰ƒ–…’”ÔÈïÜáæÔÜƒ³…ÝÙéàÒèÉåÏª–”Óo|”‰ƒ–…’”âÎÓå×æÓÖÒÏÛ“éæÙÝÈž‡®èâ§¿ä‡›~‰ƒ–…’”ÛÈæÔäèÏÏÌâÊ ëâÒ×Û”°äÍ¡˜åèâ‘ÓãÎÖ›‹Ÿ¥ÙÖ²Ì×…Ÿo’”‰ƒ–…’æÕÙÒèÙÑÚÙÕÈ¤ÜäÝäÎ‹˜¡æØ®‹ŽßÓØãâÖÄêÎáâË×ßÙÞÙ—Æ‘ÛÓÕãÔÎ‹ÚæÚ¨Œ¡‡®£äÍ¡ÒÓ”z‰ƒ–…’”‰ÕÛÕáæäÈÉßÑ×¢çÛÌêÊš–¬ÝÇ´‡ÝÞÏÒèÒÓèÙØÑÑŒÖÕäÎŠÓ“×âÓØÇÛ™éäÏ›Ž–¬˜×Ú£Îâ’’m–…’”‰ƒ–××äßÛ×ÕËÛàÕ—ÚèÎæÙ˜‹ŸêÉ°–›ÒÑÜÔäáÑÝÌåÓÍ›ÑÞ×ÞÔäÓÜÒÖêŒÏ¢Õ×ÆåÉ×œ—Þ×Ü™›‹Ÿ¥ÙÖ²Ì×…Ÿo’”‰ƒ–…’æÕÙÒèÙÑÚÙÕÈ¤ÜäÝäÎ‹˜¡æØ®‹ŽßÓØãâÖÄêÎáâËÍåÚäâÑÕŠÓ“×âÓØÇÛ™éäÏ›Ž–¬˜×Ú£Îâ’’m–…’”‰ƒ–××äßÛ×ÕËÛàÕ—ÚèÎæÙ˜‹ŸêÉ°–›ÒÑÜÔäáÑÝÌåÓÍ›ÚØØèÓÓàÏÌÒëÓææéÀ¤Êà×ßÍÈžŒçèÖ¡ŠŸ”°ŸÝÇ´Áà–™sƒ–…’”‰ƒèÊâãâÝÂÜÎÞÙžàÕßÙ×œ’¥×Ú£”ŸÜÊÑÝÚÓÛÕ—ÈäÈáØÕ‘ŠëÙØ¬—’Ž˜¡¡èÔ§¿ä‡›~‰ƒ–…’”ÛÈæÔäèÏÏÌâÊ ëâÒ×Û”°äÍ¡˜ÛâÖØÕãÆæÝß×¾ÆäèÙÌÏÛÄæíàÎŠÓ“×âÓØÇÛ™éäÏ›Ž–¬˜×Ú£Îâ’’m–…’”‰ƒ–××äßÛ×ÕËÛàÕ—ÚèÎæÙ˜‹ŸêÉ°–›ÒÑÜÔäáÑÝÌåÓÍ›Ù×ÖêÎæéäÒÒäŒÏ¢Õ×ÆåÉ×œ—Þ×Ü™›‹Ÿ¥ÙÖ²Ì×…Ÿo’”‰ƒ–…’æÕÙÒèÙÑÚÙÕÈ¤ÜäÝäÎ‹˜¡æØ®‹ŽáÊëëßÛÇé“×âÓØÇÛ™éäÏ›Ž–¬˜×Ú£Îâ’’m–…’”‰ƒ–××äßÛ×ÕËÛàÕ—ÚèÎæÙ˜‹Ÿ¥Ùä²Ì×…Ÿo’”‰ÕÛÕáæäÈÉßÑ×¢çÛÌêÊš–¬˜××ÇÞÙ®ÅÑ˜Ž|~‰ƒ–××äßÛ×ÕËÛàÕ—ÚèÎæÙ˜‹Ÿ¥ÇáØé§¿ä‡›~‰ƒ–××äßÛ×ÕËÛàÕ—ÚèÎæÙ˜‹Ÿ¥ÍæáÜ§…Ÿo’”‰ÕÛÕáæäÈÉßÑ×¢ÓÕÒéÊšz
+#!/usr/bin/python
+#coding: utf8
+
+
+##
+## => Generate tables and figures at different format
+##
+##
+##
+## TODO:
+##  -> plot publication evolution over time => [DONE]
+##  -> plot country repartition (journal) => [DONE]
+##  -> plot publication type repartition => [DONE]
+##  -> plot keyword repartition => [DONE]
+##  -> Generate big table => [DONE]
+##  -> Generate html report => [DONE]
+##
+##  -> Generate pdf report
+##  -> Generate latex report
+##  -> plot country repartition (author)
+##  -> plot keywords by country
+##
+##
+##  -> check usage condition for each visualisation lib
+##
+
+
+
+def plot_publication_evolution(meta_information):
+    """
+    plot evolution of the number of publication
+    over time
+    """
+
+    ## importation
+    import matplotlib.pyplot as plt
+
+    ## parameters
+    year_to_nb_of_articles = {}
+
+    ## Select information from
+    ## meta information
+    for pmid in meta_information.keys():
+        date = meta_information[pmid]['date']
+        if(str(date) != "NA" and len(date) >= 4):
+            date = date[-4:]
+            if(date not in year_to_nb_of_articles):
+                year_to_nb_of_articles[date] = 1
+            else:
+                year_to_nb_of_articles[date] += 1
+
+    ## Generate and save figure
+    plt.bar(year_to_nb_of_articles.keys(), year_to_nb_of_articles.values(),
+            color='b',
+            align='center',
+            width=0.3)
+    plt.xticks(rotation=45)
+    plt.savefig("images/time_evolution.png")
+    plt.close()
+
+
+
+def plot_country_repartition(meta_information):
+    """
+    Plot a pie chart with the repartition of
+    journal's country
+    """
+
+    ## importation
+    import matplotlib.pyplot as plt
+
+    ## parameters
+    country_to_nb_of_articles = {}
+
+    ## Select information from
+    ## meta information
+    for pmid in meta_information.keys():
+
+        country = meta_information[pmid]['journal_country']
+        if(str(country) != "NA"):
+            if(country not in country_to_nb_of_articles):
+                country_to_nb_of_articles[country] = 1
+            else:
+                country_to_nb_of_articles[country] += 1
+
+    ## Generate Pie chart
+    plt.figure(1, figsize=(6,6))
+    labels = country_to_nb_of_articles.keys()
+    fracs = country_to_nb_of_articles.values()
+    plt.pie(fracs, labels=labels, autopct='%1.1f%%', startangle=90)
+    plt.savefig("images/country_repartition.png")
+    plt.close()
+
+
+
+def plot_article_type(meta_information):
+    """
+    Plot a pie chart with the repartition of
+    article type
+    """
+
+    ## importation
+    import matplotlib.pyplot as plt
+
+    ## parameters
+    type_to_nb_of_articles = {}
+
+    ## Select information from
+    ## meta information
+    for pmid in meta_information.keys():
+
+        type = meta_information[pmid]['article_type']
+        if(str(type) != "NA"):
+            if(type not in type_to_nb_of_articles):
+                type_to_nb_of_articles[type] = 1
+            else:
+                type_to_nb_of_articles[type] += 1
+
+    ## Generate Pie chart
+    plt.figure(1, figsize=(6,6))
+    labels = type_to_nb_of_articles.keys()
+    fracs = type_to_nb_of_articles.values()
+    plt.pie(fracs, labels=labels, autopct='%1.1f%%', startangle=90)
+    plt.savefig("images/article_type_repartition.png")
+    plt.close()
+
+
+def plot_keyword_repartition(meta_information):
+    """
+    Plot keyword repartition in a pie chart
+    """
+
+    ## importation
+    import matplotlib.pyplot as plt
+
+    ## parameters
+    keywords_to_nb_of_articles = {}
+
+    ## Select information from
+    ## meta information
+    for pmid in meta_information.keys():
+        keywords = meta_information[pmid]['keywords']
+
+        if(len(keywords) > 0 and str(keywords) != "NA"):
+            for word in keywords[0]:
+
+                if(word not in keywords_to_nb_of_articles.keys()):
+                    keywords_to_nb_of_articles[word] = 1
+                else:
+                    keywords_to_nb_of_articles[word] += 1
+
+    ## Generate and save figure
+    plt.figure(1, figsize=(6,6))
+    labels = keywords_to_nb_of_articles.keys()
+    fracs = keywords_to_nb_of_articles.values()
+    plt.pie(fracs, labels=labels, autopct='%1.1f%%', startangle=90)
+    plt.savefig("images/keywords_repartition.png")
+    plt.close()
+
+
+
+def generate_meta_table(meta_information):
+    """
+    IN PROGRESS
+    """
+
+    ## parmaeters
+    table_file = open("table_file.tsv", "w")
+
+    ## Get the header
+    header = "pmid\ttitle\tauthors\tinstitution\tdate\tjournal\tcountry\tlanguage\n"
+
+    ## get data
+    text = ""
+    for pmid in meta_information.keys():
+        line = str(pmid)+"\t"+meta_information[pmid]['title']+"\t"
+        line += meta_information[pmid]['author_list']+"\t"
+        line += meta_information[pmid]['institution']+"\t"
+        line += meta_information[pmid]['date']+"\t"
+        line += meta_information[pmid]['journal']+"\t"
+        line += meta_information[pmid]['journal_country']+"\t"
+        line += meta_information[pmid]['language'][0]+"\n"
+        text += line
+    text = text[:-1]
+
+    ## write data into file
+    table_file.write(header.encode('utf8'))
+    table_file.write(text.encode('utf8'))
+    table_file.close()
+
+
+
+
+
+def write_html_report(meta_information):
+    """
+    => Write a html report from meta information
+        - Generate and plot figures
+    => TODO:
+        - use to debug online retrieval (specific information retrieval)
+        - Add some javascript
+        - Paillettes
+    """
+
+    ##------------------##
+    ## Generate Figures ########################################################
+    ##------------------##
+    plot_publication_evolution(meta_information)
+    plot_country_repartition(meta_information)
+    plot_article_type(meta_information)
+    plot_keyword_repartition(meta_information)
+
+
+    ##--------------##
+    ## Write Report ############################################################
+    ##--------------##
+    report_file = open("report.html", "w")
+    report_file.write("<html>\n")
+    report_file.write("<head>\n\t<title>BIBOT</title>\n</head>\n")
+    report_file.write("<body>\n")
+    report_file.write("\t<h1>BIBOT analyser</h1>\n")
+
+    ## include Figures
+    report_file.write("\t<img src=\"images/time_evolution.png\">\n")
+    report_file.write("\t<img src=\"images/country_repartition.png\">\n")
+    report_file.write("\t<img src=\"images/keywords_repartition.png\">\n")
+    report_file.write("\t<img src=\"images/article_type_repartition.png\">\n")
+
+    ## write table
+    report_file.write("<table>\n")
+    report_file.write("<tr>\n")
+    report_file.write("<th>PMID</th>\n")
+    report_file.write("<th>Title</th>\n")
+    report_file.write("<th>Date</th>\n")
+    report_file.write("<th>Authors</th>\n")
+    report_file.write("<th>Journal</th>\n")
+    report_file.write("<th>Journal Country</th>\n")
+    report_file.write("<th>Languages</th>\n")
+    report_file.write("<th>Article Type</th>\n")
+    report_file.write("<th>Institutions</th>\n")
+    report_file.write("<th>Keywords</th>\n")
+    report_file.write("</tr>\n")
+
+    for pmid in meta_information.keys():
+        information = meta_information[pmid]
+
+        language = ""
+        if(information['language'] != "NA"):
+            for elt in information['language']:
+                language += str(elt)+","
+            language = language[:-1]
+
+        keywords = ""
+        if(information['keywords'] != "NA"):
+            for elt in information['keywords'][0]:
+                keywords += elt +","
+            keywords = keywords[:-1]
+
+        report_file.write("<tr>\n")
+        report_file.write("<td>"+str(pmid)+"</td>\n")
+        report_file.write("<td>"+information['title'].encode('utf8')+"</td>\n")
+        report_file.write("<td>"+information['date'].encode('utf8')+"</td>\n")
+        report_file.write("<td>"+information['author_list'].encode('utf8')+"</td>\n")
+        report_file.write("<td>"+information['journal'].encode('utf8')+"</td>\n")
+        report_file.write("<td>"+information['journal_country'].encode('utf8')+"</td>\n")
+        report_file.write("<td>"+language.encode('utf8')+"</td>\n")
+        report_file.write("<td>"+information['article_type'].encode('utf8')+"</td>\n")
+        report_file.write("<td>"+information['institution'].encode('utf8')+"</td>\n")
+        report_file.write("<td>"+keywords.encode('utf8')+"</td>\n")
+        report_file.write("</tr>\n")
+    report_file.write("</table>\n")
+
+    report_file.write("</body>\n")
+    report_file.write("</html>")
+    report_file.close()
