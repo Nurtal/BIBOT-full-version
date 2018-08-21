@@ -1,0 +1,5 @@
+-> Dispatch deatures into modules
+-> GUI
+-> full articles access (legal PMC)
+-> full articles access (legal, INSERM credential)
+-> Meta information presentation (figures)
